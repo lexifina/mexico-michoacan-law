@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Ejecutivo del Estado, expedirá el Reglamento de la Ley, y los Ayuntamientos los reglamentos interiores de sus archivos, dentro de los siguientes ciento ochenta días naturales, contados a partir de la entrada en vigor de la presente Ley.

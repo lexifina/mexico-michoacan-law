@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Comité Técnico deberá integrarse e iniciar sus funciones a mas tardar dentro de los siguientes ciento veinte días naturales, contados a partir de la entrada en vigor de la presente Ley.

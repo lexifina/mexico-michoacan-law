@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. En tanto se integra e inicia sus funciones el Comité Técnico, el Poder Ejecutivo, a través del titular de Archivos, difundirá entre los Ayuntamientos del Estado, los alcances de esta Ley y proporcionará la asesoría técnica que en su caso requieran.
