@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los Ayuntamientos en el ámbito de sus respectivas competencias deberán reglamentar las atribuciones otorgadas por la presente Ley en un término no mayor de 120 días naturales, contados a partir de la entrada en vigor de la presente Ley.
