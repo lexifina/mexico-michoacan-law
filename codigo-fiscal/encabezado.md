@@ -1,6 +1,6 @@
 CODIGO FISCAL DEL ESTADO DE MICHOACAN DE OCAMPO
 Código publicado en la Sección Segunda del Periódico Oficial del Estado de Michoacán, el jueves 27 de febrero de 1992.
-PODER EJECUTIVO DEL ESTADO
+PODER EJECUTIVO DELESTADO
 JAIME GENOVEVO FIGUEROA ZAMUDIO, Gobernador del Estado de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente
 DECRETO
