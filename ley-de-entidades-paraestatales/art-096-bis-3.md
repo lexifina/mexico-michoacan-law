@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2017)
+ARTÍCULO 96 BIS 3.- La prevención de cáncer de mama y cáncer cervicouterino incluye actividades de promoción de la salud tendientes a disminuir la prevalencia de los factores de riesgo en la comunidad, desarrollar entornos saludables, el reforzamiento de la participación social, la reorientación de los servicios de salud a la prevención y el impulso de políticas públicas saludables.
+La prevención de cáncer de mama y cáncer cervicouterino tiene como finalidad orientar y concientizar a las personas sobre la responsabilidad en el autocuidado de la salud, promover estilos de vida sanos a través de campañas de difusión.

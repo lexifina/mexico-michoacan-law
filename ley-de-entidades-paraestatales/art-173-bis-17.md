@@ -1,0 +1,8 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 27 DE FEBRERO DE 2011)
+CAPÍTULO III
+TRASPLANTES
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
+ARTÍCULO 173 BIS 17.- Los trasplantes de órganos, tejidos y células en seres humanos vivos, podrán llevarse a cabo cuando hayan sido satisfactorios los resultados de las investigaciones realizadas al efecto, representen un riesgo aceptable para la salud y la vida del donante y del receptor, y siempre que existan justificantes de orden terapéutico.
+Está prohibido:
+I. El trasplante de gónadas o tejidos gonadales; y
+II. El uso, para cualquier finalidad, de tejidos embrionarios o fetales producto de abortos inducidos.

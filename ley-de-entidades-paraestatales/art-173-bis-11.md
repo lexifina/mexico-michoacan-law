@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
+ARTÍCULO 173 BIS 11.- Habrá consentimiento tácito del donante, cuando no haya manifestado la negativa a que su cuerpo o componentes sean utilizados para trasplantes, siempre y cuando se obtenga también el consentimiento de alguna de las siguientes personas: el o la cónyuge, el concubinario, la concubina, los descendientes, los ascendientes, los hermanos, el adoptado o el adoptante; conforme a la prelación señalada.
+El escrito por el que la persona exprese no ser donador, podrá ser privado o público, y deberá estar firmado por éste, o bien, la negativa expresa podrá constar en alguno de los documentos públicos que para este propósito determine la Secretaria de Salud en coordinación con otras autoridades competentes.
+Al ser advertido en el proceso de donación cualquier irregularidad, deberá darse aviso al Centro Estatal de Trasplantes para que éste lleve a cabo las acciones procedentes.

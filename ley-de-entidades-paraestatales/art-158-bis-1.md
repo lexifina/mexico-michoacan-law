@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2017)
+ARTÍCULO 158 BIS 1.- Los entes integrantes del Sistema Estatal de Salud a los que se refiere el artículo 8 de esta Ley, estarán obligados a proporcionar a la Secretaría a través del Centro Estatal de Cancerología, la información relativa al Registro Estatal de Cáncer de conformidad con los reglamentos, formatos, metodología y lineamientos que se establezcan para tal efecto.

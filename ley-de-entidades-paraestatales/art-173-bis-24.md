@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
+ARTÍCULO 173 BIS 24.- Los concesionarios de los diversos medios de transporte, otorgarán todas las facilidades que requiera el traslado de órganos y tejidos destinados a trasplantes, conforme a las disposiciones reglamentarias aplicables y a las Normas Oficiales Mexicanas que emitan conjuntamente las Secretarías de Comunicaciones y Transportes y de Salud.
+El traslado, preservación, conservación, manejo, etiquetado, claves de identificación y los costos asociados al manejo de órganos, tejidos y células que se destinen a trasplantes, se ajustarán a lo que establezcan las disposiciones generales aplicables.

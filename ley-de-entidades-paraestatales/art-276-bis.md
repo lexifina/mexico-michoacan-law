@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE JUNIO DE 2017)
+ARTÍCULO 276 BIS.- La Secretaría, el Organismo y la COPRISED, en el ámbito de sus competencias, implementarán programas de vigilancia para controlar la expedición o venta de cualquier tipo de medicamentos que se encuentren deteriorados o caducados y que incumplan con los requisitos relativos a su composición, estabilidad y eficacia poniendo así en peligro la salud de las personas.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2023)
+ARTÍCULO 189 BIS.- Ante el acontecimiento de una contingencia sanitaria, la Secretaría de Salud, en el ámbito de su competencia, podrá coordinarse con los ayuntamientos, vendedores y locatarios de mercados y centros de abasto, para llevar a cabo acciones de sanidad y/o limpieza de dichos lugares; acción que deberá ser realizada con la finalidad de mantener un adecuado control sanitario, lo anterior de conformidad con lo establecido en el artículo 36 de la presente Ley.
