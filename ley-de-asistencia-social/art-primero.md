@@ -1,0 +1,1 @@
+ARTICULO PRIMERO. Se derogan, sólo en lo que se opongan a la presente Ley, los Decretos Legislativos 139 y 191 de fechas 12 de julio de 1977 y 17 de enero de 1985, respectivamente y publicados, por su orden, en el Periódico Oficial del Estado, bajo los números 6 y 35, los días 18 de julio de 1977 y 28 de enero de 1985.

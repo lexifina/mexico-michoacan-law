@@ -1,0 +1,1 @@
+ARTICULO TERCERO. Las funciones que sean transferidas de una dependencia a otra, de acuerdo con la presente Ley, pasarán incluyendo los recursos humanos y materiales que se venían utilizando para el desempeño de la función.
