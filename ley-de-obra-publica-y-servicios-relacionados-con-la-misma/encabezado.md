@@ -1,0 +1,9 @@
+LEY DE OBRAS PUBLICAS DEL ESTADO DE MICHOACAN DE OCAMPO Y DE SUS MUNICIPIOS
+Ley publicada en la Sección Tercera del Periódico Oficial del Estado de Michoacán, el lunes 7 de diciembre de 1998.
+VICTOR MANUEL TINOCO RUBI, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
+El H. Congreso del Estado, se ha servido dirigirme el siguiente
+DECRETO
+EL CONGRESO DE MICHOACAN DE OCAMPO
+DECRETA:
+NUMERO 225
+LEY DE OBRAS PUBLICAS DEL ESTADO DE MICHOACAN DE OCAMPO Y DE SUS MUNICIPIOS
