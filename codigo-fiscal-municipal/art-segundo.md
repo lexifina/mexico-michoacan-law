@@ -3,3 +3,4 @@ PALACIO DEL PODER LEGISLATIVO, Morelia, Michoacán, a 22 de julio de 1997. "AÑO
 DIPUTADO PRESIDENTE.- JAIME OSEGUERA HERRERA.- DIPUTADO SECRETARIO.- LEONEL VICTORIA BENITES.- DIPUTADO SECRETARIO.- AGUSTIN TRUJILLO IÑIGUEZ.- (Firmados).
 En cumplimiento a lo dispuesto por la fracción I del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, ciudad de Morelia, Michoacán, a los 12 doce días del mes de agosto de 1997, mil novecientos noventa y siete.
 SUFRAGIO EFECTIVO. NO REELECCION.- EL GOBERNADOR DEL ESTADO.- LIC. VICTOR MANUEL TINOCO RUBI.- EL SECRETARIO DE GOBIERNO.- LIC. ANTONIO GARCIA TORRES.- (Firmados).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMA A LA PRESENTE LEY.

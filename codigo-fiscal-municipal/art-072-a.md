@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1999)
+ARTICULO 72-A.- Son infracciones relacionadas con los derechos por la expedición y renovación o refrendo anual de licencias para establecimientos que expendan bebidas alcohólicas al público en general y por la colocación de anuncios publicitarios, no contar con la licencia respectiva y no efectuar la renovación o refrendo en el plazo que señale la Ley de Ingresos para los Municipios del Estado de Michoacán de Ocampo.
