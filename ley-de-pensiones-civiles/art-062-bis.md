@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE SEPTIEMBRE DE 1986)
+ARTICULO 62 Bis.- Cuando el servidor público, jubilado o pensionado falleciere, los familiares derechohabientes gozarán de una pensión en los términos del Reglamento que para el efecto expida la Junta Directiva. Lo anterior será procedente sólo en los casos en que tal prestación no esté incluida en la seguridad social que se otorga a través de la institución respectiva con que hubieren convenido las entidades públicas o la Dirección.
