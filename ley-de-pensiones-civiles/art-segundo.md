@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley de Pensiones Civiles para el Estado de Michoacán, aprobada en Decreto número 58 del 30 de diciembre de 1969, promulgada el día 7 de enero de 1970, publicada en el Periódico Oficial número 22 Segunda Sección, del día 15 del mismo mes y año.

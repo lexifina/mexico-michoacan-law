@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- Los deudores de la Dirección de Pensiones por operaciones de venta de casas, préstamos hipotecarios o por otros conceptos, deberán sujetarse a las disposiciones de esta Ley, con los beneficios y obligaciones que en la misma se establecen.

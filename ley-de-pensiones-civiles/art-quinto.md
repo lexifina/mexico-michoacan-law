@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- Todos los derechos y obligaciones de los trabajadores al servicio del Estado, incluyendo a los de la Dirección de Pensiones, derivados de la aplicación de la ley que se abroga, se reconocen y quedarán a favor y a cargo de la nueva Dirección de Pensiones.
