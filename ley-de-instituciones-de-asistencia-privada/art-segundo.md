@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Instituciones de Asistencia Privada del Estado de Michoacán de Ocampo, aprobada por el Congreso del Estado mediante decreto número 126 de fecha 10 de septiembre de 1979, publicada en el Periódico Oficial del Estado, el 10 de septiembre de 1979, Segunda Sección.

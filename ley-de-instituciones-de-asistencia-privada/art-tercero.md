@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Las instituciones de asistencia privada existentes, que hayan sido constituidas o autorizadas y registradas por la Junta de este ramo, continuarán funcionando con la misma declaratoria de autorización y bajo el mismo número de registro que les haya otorgado dicha Junta, sin necesidad de uno nuevo.

@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Los integrantes de la Junta que están en funciones seguirán desempeñando su cargo hasta el término de su designación o, en su caso, del periodo para el que fueron electos cuidando de someter su actuación a este ordenamiento.
