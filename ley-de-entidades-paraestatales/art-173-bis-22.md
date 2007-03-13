@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
-ARTÍCULO 173 BIS 22.- Los profesionales de las disciplinas para la salud que intervengan en la extracción de órganos y tejidos o en trasplantes, deberán contar con el entrenamiento especializado respectivo, conforme lo determinen las disposiciones reglamentarias aplicables y estar inscritos en el Registro Nacional de Trasplantes.

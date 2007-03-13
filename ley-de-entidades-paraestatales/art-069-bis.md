@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 12 DE JULIO DE 2012)
-ARTÍCULO 69 BIS.- Los Usuarios tendrán derecho a recibir información suficiente, clara, oportuna y veraz, así como la orientación que sea necesaria respecto a la atención de su salud y sobre los riesgos y alternativas de los procedimientos diagnósticos, terapéuticos y quirúrgicos, sustentados en literatura médica actualizada, que se le indiquen o apliquen.
-Así mismo, a otorgar o no su consentimiento válidamente informado y a rechazar tratamientos o procedimientos. Cuando el riesgo del acto médico autorizado se encuentre descrito en la carta de consentimiento previamente aceptada por el usuario, constituirá una exclusión de responsabilidad.

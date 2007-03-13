@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2017)
-ARTÍCULO 96 BIS 5.- El tratamiento de cáncer de mama y cáncer cervicouterino debe realizarse por personal médico calificado que cuente con cédula de especialidad en oncología médica o quirúrgica o con entrenamiento específico comprobado con respaldo documental de instituciones con reconocimiento oficial.
-Las personas con cáncer de mama o cáncer cervicouterino en etapa terminal y sus familiares, tienen derecho a recibir atención paliativa, como parte de la atención integral; para tal efecto la Secretaría garantizará el acceso a este derecho, de conformidad a las disposiciones jurídicas aplicables.

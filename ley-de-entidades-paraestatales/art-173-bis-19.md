@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
-ARTÍCULO 173 BIS 19.- La selección del donante y del receptor se hará siempre por prescripción y bajo control médico, en los términos que fije La Ley General de Salud.
-No se podrán tomar órganos y tejidos para trasplantes de menores de edad vivos, excepto cuando se trate de trasplantes de médula ósea, para lo cual se requerirá el consentimiento expreso de los representantes legales del menor.
-Tratándose de menores que han perdido la vida, sólo se podrán tomar sus órganos y tejidos para trasplantes con el consentimiento expreso de los representantes legales del menor.
-En el caso de incapaces y otras personas sujetas a interdicción, no podrá disponerse de sus componentes, ni en vida ni después de su muerte.

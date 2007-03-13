@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 27 DE FEBRERO DE 2011)
-ARTÍCULO 173 BIS 23.- Para la asignación de órganos y tejidos de donador no vivo, se tomará en cuenta la gravedad del receptor, la oportunidad del trasplante, los beneficios esperados, la compatibilidad con el receptor y los demás criterios médicos aceptados.
-Cuando no exista urgencia o razón médica para asignar preferentemente un órgano o tejido, ésta se sujetará estrictamente a listas que se integrarán con los datos de los mexicanos en espera y que estarán a cargo del Centro Nacional de Trasplantes.

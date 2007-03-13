@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2012)
-ARTÍCULO 177 QUATER.- La COPRISED, tendrá facultades para vigilar el cumplimiento de lo establecido en el presente capítulo y, en su caso, impondrá las sanciones que procedan. La COPRISED podrá apoyarse en el respectivo Colegio de Cirujanos Plásticos de Durango, A.C., para la obtención de la información relativa a la acreditación especializada de los profesionistas que realicen liposucciones.
-Para la imposición de sanciones actuará como disposición Supletoria lo previsto en el capítulo XII del Reglamento de la Ley General de Salud en Materia de Prestación de Servicios de Atención Médica.
