@@ -1,0 +1,7 @@
+P.O. 6 DE JULIO DE 2007.
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO.- Comuníquese al Ejecutivo del Estado, a efecto de que efectúe la desincorporación del Órgano Autónomo denominado Comisión Estatal de Apelación y Arbitraje del Deporte, como ente auxiliar de la administración pública.
+TERCERO.- Comuníquese al Ejecutivo del Estado, que el Reglamento Interior de la Comisión Estatal de Apelación y Arbitraje, de fecha diez de enero de dos mil cinco, se deberá abrogar, en virtud de la liquidación y desincorporación del Órgano Autónomo denominado Comisión Estatal de Apelación y Arbitraje del Deporte, como ente auxiliar de la administración pública.
+CUARTO.- Comuníquese a la Tesorería General del Estado, a la Secretaría de Planeación y Desarrollo y a la Comisión Estatal de Apelación y Arbitraje del Deporte, para que a más tardar, en el término de treinta días hábiles contados a partir de la fecha de entrada en vigor del presente Decreto, proceda a la liquidación.
+QUINTO.- Dése vista a la Auditoría Superior de Michoacán, a efecto de que conforme a sus atribuciones y dado que se trata de un Órgano Autónomo que maneja recursos públicos; intervenga en la liquidación y realice las observaciones a que haya lugar.
+SEXTO.- El proyecto de Reglamento Interior de la CEAAD, deberá elaborarse, presentarse y aprobarse a más tardar en seis meses, contados a partir de la fecha de entrada en vigor, del presente Decreto.
