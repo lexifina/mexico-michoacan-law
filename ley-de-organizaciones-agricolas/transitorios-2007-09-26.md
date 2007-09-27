@@ -1,0 +1,5 @@
+P.O. 26 DE SEPTIEMBRE DE 2007.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado Libre y Soberano de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Las organizaciones de productores agrícolas que bajo el amparo de esta Decreto, se conviertan en asociaciones y que decidan integrarse a la Unión Agrícola Estatal, deberán ajustar sus estatutos y reglamentos a la Ley de Organizaciones Agrícolas del Estado de Michoacán, en un plazo de seis meses contados a partir de que soliciten su incorporación a la Unión.
+ARTÍCULO TERCERO. El Titular del Poder Ejecutivo del Estado, adecuará el Reglamento de la Ley, conforme al presente Decreto, dentro de los noventa días siguientes a la entrada en vigor.
+ARTÍCULO CUARTO. En tanto no se publique en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, la reforma a la Ley Orgánica de la Administración Pública del Estado de Michoacán de Ocampo, se entenderá por Secretaría de Desarrollo Rural a la Secretaría de Desarrollo Agropecuario.

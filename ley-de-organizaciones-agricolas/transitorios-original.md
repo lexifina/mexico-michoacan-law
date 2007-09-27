@@ -8,3 +8,4 @@ PALACIO DEL PODER LEGISLATIVO, Morelia, Michoacán de Ocampo a 22 de marzo de 19
 DIPUTADO PRESIDENTE.- ALFREDO ESQUIVEL RAMIREZ.- DIPUTADO SECRETARIO.- LEONEL VICTORIA BENITES.- DIPUTADO SECRETARIO.- AGUSTIN TRUJILLO IÑIGUEZ. (Firmados).
 En cumplimiento a lo dispuesto por la fracción I del Artículo 60 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 25 veinticinco días del mes de marzo de 1997 mil novecientos noventa y siete.
 SUFRAGIO EFECTIVO. NO REELECCION.- EL GOBERNADOR DEL ESTADO.- LIC. VICTOR MANUEL TINOCO RUBI.- El SECRETARIO DE GOBIERNO.- LIC. ANTONIO GARCIA TORRES. (Firmados).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
