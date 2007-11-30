@@ -10,3 +10,4 @@ DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de O
 PRESIDENTE.- DIP. ARMANDO OCTAVIO BALLINAS MAYÉS.- SECRETARIO.- DIP. AMADEO BOLAÑOS REYNOSO.- SECRETARIA.- DIP. MA. GUADALUPE CALDERÓN MEDINA.- SECRETARIO.- DIP. GERARDO CORREA COSIO. (Firmados)
 En cumplimiento a lo dispuesto por la fracción I, del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la Ciudad de Morelia, Michoacán, a los 3 tres días del mes de noviembre del año 2004 dos mil cuatro.
 SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LÁZARO CÁRDENAS BATEL.- EL SECRETARIO DE GOBIERNO.- L. ENRIQUE BAUTISTA VILLEGAS. (Firmados).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

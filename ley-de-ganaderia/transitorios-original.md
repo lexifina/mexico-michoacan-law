@@ -10,3 +10,4 @@ DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de O
 PRESIDENTE.- DIP. DAVID GARIBAY TENA.- PRIMER SECRETARIO.- DIP. JUAN ANTONIO IXTLÁHUAC ORIHUELA.- SEGUNDO SECRETARIO.- DIP. ALEJANDRO MÉNDEZ LÓPEZ.- TERCER SECRETARIO.- DIP. SALVADOR ORTÍZ GARCÍA. (Firmados).
 En cumplimiento a lo dispuesto por la fracción I, del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la Ciudad de Morelia, Michoacán, a los 8 ocho días del mes de febrero del año 2007 dos mil siete.
 SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LÁZARO CÁRDENAS BATEL.- EL SECRETARIO DE GOBIERNO.- L. ENRIQUE BAUTISTA VILLEGAS. (Firmados).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
