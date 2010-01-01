@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2009)
+ARTICULO 49-B. Para comprobar los ingresos, el valor de los actos o actividades, por los que deban pagar contribuciones los contribuyentes, las autoridades fiscales presumirán, salvo prueba en contrario, que la información o documentos de terceros relacionados con el contribuyente, corresponden a operaciones realizadas por éste, cuando:
+I. Se refieran al contribuyente designado por su nombre, denominación o razón social;
+II. Señalen como lugar para la entrega o recibo de bienes o prestación de servicios, relacionados con las actividades del contribuyente, cualquiera de sus establecimientos, aún cuando exprese el nombre, denominación o razón social de un tercero, real o ficticio;
+III. Señalen el nombre o domicilio de un tercero, real o ficticio, si se comprueba que el contribuyente entrega o recibe bienes o servicios a ese nombre o en ese domicilio; y,
+IV. Se refieran a cobros o pagos efectuados por el contribuyente o por su cuenta, por persona interpósita o ficticia.
