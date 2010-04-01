@@ -4,7 +4,7 @@ DECRETO No. 69
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, salvo los artículos 20, 29, 31 párrafo primero, 33, 51, 54, 60 fracción X, 112 párrafo segundo y 117, que entrarán en vigor el día primero del mes de enero del año dos mil quince.
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 2006)
 SEGUNDO. El Gobernador del Estado en funciones, concluirá su ejercicio constitucional el día catorce de febrero de dos mil ocho, periodo para el que fue electo.
-La Septuagésima Legislatura, concluirá su ejercicio constitucional el día catorce de enero del año dos mil ocho, periodo para el que fue electa.
+La Septuagésima Legislatura, concluirá su ejercicio constitucional el día catorce de enero del año dos mil ocho., periodo para el que fue electa.
 Los ayuntamientos del Estado, concluirán su ejercicio constitucional el día treinta y uno de diciembre del año dos mil siete, periodo para el que fueron electos.
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 2006)
 TERCERO. La elección de Gobernador del Estado, diputados y ayuntamientos, se celebrará el segundo domingo del mes de noviembre del año dos mil siete, y tomarán posesión de su encargo al concluir el periodo de los actuales.
