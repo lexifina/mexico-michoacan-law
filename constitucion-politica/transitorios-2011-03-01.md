@@ -1,0 +1,6 @@
+P.O. 1 DE MARZO DE 2011.
+DECRETO NUMERO 248, POR EL QUE SE REFORMA EL SEGUNDO PARRAFO DEL ARTICULO 133; FRACCION I Y ULTIMO PARRAFO DE LA FRACCION X DEL ARTICULO 134. SE ADICIONA UN CUARTO PARRAFO A LA FRACCION XI DEL ARTICULO 44 DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACAN DE OCAMPO.
+ARTÍCULO PRIMERO. Publíquese el presente Decreto en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, para su conocimiento general y efectos legales procedentes.
+ARTÍCULO SEGUNDO. Remítase a los ayuntamientos del Estado, el presente Decreto, para que, en los términos de la fracción IV del Artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, después de recibida, envíen al Congreso del Estado el resultado de su votación.
+ARTÍCULO TERCERO. Aprobado por la mayoría de los ayuntamientos, el presente Decreto entrará en vigor a los noventa días hábiles siguientes de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO CUARTO. El Congreso del Estado deberá aprobar las reformas necesarias para dar cumplimiento a lo dispuesto en el presente Decreto, a más tardar en un plazo de noventa días, contados a partir de la fecha de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
