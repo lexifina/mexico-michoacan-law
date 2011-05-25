@@ -19,3 +19,4 @@ DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de O
 PRESIDENTE.- DlP. GUSTAVO ARIAS GARDUÑO.- PRIMER SECRETARlO.- DIP. MARTÍN SAMAGUEY CÁRDENAS.- SEGUNDO SECRETARIO.- DIP. JOSÉ LUIS ESQUlVEL ZALPA.- TERCER SECRETARIO.- DlP. GABRIELARGUETAJAlMES (SIC). (Firmados).
 En cumplimiento a lo dispuesto por la fracción I, del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la Ciudad de Morelia, Michoacán, a los 07 siete días del mes de Diciembre del año 2007 dos mil siete.
 SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LÁZARO CÁRDENAS BATEL.- LA SECRETARIA DE GOBIERNO.- MARÍA GUADALUPE SÁNCHEZ MARTÍNEZ (Firmados).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
