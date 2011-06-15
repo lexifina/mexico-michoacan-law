@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. La Procuraduría General de Justicia del Estado, a partir de la entrada en vigor de este ordenamiento, deberá nombrar a los agentes del Ministerio Público adscritos a los Juzgados de Ejecución de sanciones.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Se abroga la Ley de Ejecución de Sanciones Penales del Estado de Michoacán de Ocampo, publicada en el Periódico Oficial del Estado el 27 de enero de 2005, y se dejan sin efecto las demás disposiciones legales y administrativas derivadas de la misma en lo que se opongan a la presente Ley.
