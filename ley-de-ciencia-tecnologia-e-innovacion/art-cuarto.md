@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Gobernador deberá disponer lo necesario para la modificación del contrato del actual Fideicomiso de Fomento al Desarrollo de la Ciencia y la Tecnología en el Estado, de conformidad con la presente Ley.

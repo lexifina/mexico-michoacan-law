@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. A partir del 14 de Enero del 2012, el CECTI tendrá treinta días para formular y presentar al Gobernador el Programa Estatal de Ciencia, Tecnología e Innovación. El Programa deberá ser publicado igualmente en el Periódico Oficial.

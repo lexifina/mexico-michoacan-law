@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO. En plazo no mayor a treinta días contados a partir del 14 de Febrero del 2012, deberá estar integrado los Consejos Directivo y Consultivo, y nombrado su Director General.
+En tanto no sean nombrados los Consejeros del Consejo Directivo y los integrantes del Comité Consultivo así como el Director General, los que actualmente realizan dicha función en el COECYT permanecerán en su cargo.

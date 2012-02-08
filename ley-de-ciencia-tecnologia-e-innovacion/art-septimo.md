@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Para los efectos de lo dispuesto en la fracción II del artículo 4 de la presente Ley, los recursos destinados al CECTI deberán incrementarse anualmente, hasta alcanzar el porcentaje referido, en un término de tres años a partir del ejercicio fiscal del año 2012 dos mil doce.

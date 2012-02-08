@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. Lo dispuesto en la fracción XVI del artículo 14 de la presente Ley, con relación a destinar más del diez por ciento para gasto corriente entrará en vigencia a partir de que el Congreso del Estado destine el recurso establecido en el artículo 4 fracción II de esta Ley.

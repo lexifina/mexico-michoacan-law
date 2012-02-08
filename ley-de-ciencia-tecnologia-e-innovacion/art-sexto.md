@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. El patrimonio, incluyendo bienes muebles e inmuebles, derechos monetarios y no monetarios, archivos, papelería, programas, investigaciones o procesos similares en curso con que a la fecha cuente el COECYT y el presupuesto de egresos del mismo que no se haya ejercido a la fecha, pasará a dominio del CECTI.
