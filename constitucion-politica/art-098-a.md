@@ -19,7 +19,7 @@ Los magistrados tendrán un periodo constitucional de dos procesos electorales o
 El Congreso del Estado conocerá de las quejas en contra de los magistrados, podrá privarlos de su encargo, por las causas previstas en el artículo 77 de esta Constitución.
 (REFORMADO [N. DE E. ADICIONADO, P.O. 5 DE DICIEMBRE DE 2011)
 Los magistrados del tribunal no podrán ocupar, dentro de los dos años siguientes al término de su encargo, cargos en los poderes públicos en cuya elección hayan participado.
-(ADICIONADO CON LOS CAPITULOS Y SECCIONES QUE LO INTEGRAN, P.O. 23 DE MAYO DE 2006)
+(ADICIONADO CON LOS CAPÍTULOS Y SECCIONES QUE LO INTEGRAN, P.O. 23 DE MAYO DE 2006)
 CAPITULO II
 Del Ministerio Público y Defensoría de Oficio
 (ADICIONADA, P.O. 23 DE MAYO DE 2006)
