@@ -1,14 +1,23 @@
 TRANSITORIOS
-Artículo Primero.- La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
-Artículo Segundo.- Se derogan todas las disposiciones que contravengan a la presente Ley.
-Artículo Tercero.- El Titular del Poder Ejecutivo Estatal expedirá dentro de los noventa días siguientes a la publicación de esta ley los reglamentos que previene este cuerpo normativo y las demás disposiciones administrativas necesarias; asimismo, establecerá las adecuaciones de carácter orgánico, estructural y funcional para su debido cumplimiento.
-Lo dispuesto por la presente no implica el aumento de las estructuras administrativas de la Secretaría.
-Artículo Cuarto.- Todos los convenios y acuerdos a los que se refiere esta Ley, serán celebrados dentro de los ciento ochenta días posteriores a su publicación.
-Artículo Quinto.- El Titular del Poder Ejecutivo podrá presentar iniciativa de Decreto, para proponer el cambio de nombre de la Secretaría de Desarrollo Agropecuario a Secretaría de Desarrollo Rural, así como la adecuación de sus atribuciones en la Ley Orgánica de la Administración Pública del Estado de Michoacán de Ocampo.
-En tanto se realiza el cambio de nombre de la Secretaría, para los efectos de esta ley, se entenderá a la Secretaría de Desarrollo Agropecuario como la Secretaría de Desarrollo Rural.
-El Titular del Poder Ejecutivo del Estado dispondrá se publique y observe.-
-DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de Ocampo, a los 21 veintiún días del mes de diciembre de 2005 dos mil cinco.-
-PRESIDENTE.- DIP. GUILLERMO VALENCIA REYES.- SECRETARIA.- DIP. MINERVA BAUTISTA GÓMEZ.- SECRETARIO.- DIP. JOSÉ JUAN MARÍN GONZÁLEZ.- SECRETARIO.- DIP. JOSÉ MIGUEL CÁZARES HIGUERA. (Firmados).
-En cumplimiento a lo dispuesto por la fracción I, el (sic) artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la Ciudad de Morelia, Michoacán, a los 02 dos días del mes de enero del año 2006 dos mil seis.
-SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LÁZARO CÁRDENAS BATEL.- EL SECRETARIO DE GOBIERNO.- L. ENRIQUE BAUTISTA VILLEGAS. (Firmados).
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+ARTÍCULO PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Durango.
+ARTÍCULO SEGUNDO. El Sistema Estatal se integrará dentro de los noventa días siguientes a la entrada en vigor de la presente Ley.
+ARTÍCULO TERCERO. Los Consejos Estatal y Municipales se integrarán dentro de los sesenta días siguientes a la integración del Sistema Estatal.
+ARTÍCULO CUARTO. Los programas estatal y municipales deberán elaborarse dentro de los noventa días siguientes a la integración de los Consejos Estatal y Municipales.
+ARTÍCULO QUINTO. El Banco Estatal de Datos deberá integrarse y operar dentro de los 365 días siguientes a la entrada en vigor de la presente Ley.
+ARTÍCULO SEXTO. Los recursos para llevar a cabo los programas y la implementación de las acciones que se deriven de la presente Ley, se cubrirán con cargo a las partidas presupuestales relacionadas con la atención a mujeres del presupuesto autorizado para el ejercicio fiscal 2008 de las dependencias y entidades estatales y municipales involucradas, las cuales harán las debidas previsiones en la planeación y programación de los subsecuentes presupuestos de egresos del Estado y los Municipios respectivamente.
+ARTÍCULO SÉPTIMO. El Fondo Estatal se integrará con las partidas y se hará conforme a las disposiciones presupuestales aplicables, debiendo establecerse las mismas en el Presupuesto de Egresos del Estado del Ejercicio Fiscal correspondiente, debiendo iniciar en el ejercicio fiscal 2009.
+El Ciudadano Gobernador Constitucional del Estado, dispondrá se publique, circule y observe.
+Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (14) catorce días del mes de diciembre del año (2007) dos mil siete.
+DIP. MARCO AURELIO ROSALES SARACCO
+PRESIDENTE
+DIP. ROBERTO CARMONA JÁUREGUI
+SECRETARIO.
+DIP. FRANCISCO VILLA MACIEL
+SECRETARIO
+POR TANTO MANDO, SE IMPRIMA, PUBLIQUE, CIRCULE Y COMUNIQUESE A QUIENES CORRESPONDA PARA SU EXACTA OBSERVANCIA.
+DADO EN EL PALACIO DEL PODER EJECUTIVO EN VICTORIA DE DURANGO, DGO., A LOS DIECINUEVE DIAS DEL MES DE DICIEMBRE DEL AÑO 2007.
+EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO.
+C.P. ISMAEL ALFREDO HERNÁNDEZ DERAS
+EL SECRETARIO GENERAL DE GOBIERNO
+LIC. OLIVERIO REZA CUELLAR
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
