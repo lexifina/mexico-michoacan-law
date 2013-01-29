@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2013)
+ARTÍCULO 89 Ter. Para el cumplimiento de su objetivo, la Secretaría a través de la COEPRIS, tendrá a su cargo las siguientes atribuciones:
+I. Ejercer la regulación, control, vigilancia y fomento sanitario en todos los lugares donde se manipule o aplique, plaguicidas, sustancias peligrosas o tóxicas;
+II. Ejercer las acciones de control, regulación y fomento sanitario correspondientes, para prevenir y reducir los riesgos sanitarios derivados de la exposición de la población a factores químicos, físicos y biológicos incluyendo las sustancias tóxicas o peligrosas;
+III. Participar en coordinación con las unidades administrativas correspondientes de la Secretaría, en la instrumentación de acciones y prevenciones de control y vigilancia epidemiológica, de las intoxicaciones por plaguicidas, sustancias peligrosas o tóxicas, cuando estos se relacionen con los riesgos sanitarios derivados de los procesos de manipulación, preparación, mezcla y aplicación;
+IV. Determinar las medidas de seguridad, preventivas y correctivas en el ámbito de su respectiva competencia;
+V. Aplicar estrategias tendientes a la prevención, evaluación y seguimiento de riesgos sanitarios, en coadyuvancia con otras autoridades competentes; y,
+VI. Emitir, prorrogar y revocar las autorizaciones sanitarias en la materia de su respectiva competencia, así como ejercer aquellos actos de autoridad que para la regulación, prevención, control y fomentos sanitarios, se esté establecido o derive de la presente Ley y sus respectivos reglamentos, las Normas Oficiales Mexicanas de la materia y demás disposiciones aplicables.

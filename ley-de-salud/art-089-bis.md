@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2013)
+ARTÍCULO 89 Bis. Para los efectos de esta Ley, se entiende por:
+I. Plaguicida: Cualquier sustancia o mezcla de sustancias que se destina a controlar cualquier plaga, incluidos los vectores que transmiten las enfermedades humanas y de animales, las especies no deseadas que causen perjuicio o que interfieran con la producción agropecuaria y forestal, así como las sustancias defoliantes y las desecantes;
+II. Sustancia peligrosa: Aquel elemento o compuesto, o la mezcla química de ambos, que tiene características de corrosividad, reactividad, inflamabilidad, explosividad, toxicidad, biológico-infecciosas, carcinogenicidad, teratogenicidad o mutagenicidad; y,
+III. Sustancia tóxica: Aquel elemento o compuesto, o la mezcla química de ambos que, cuando por cualquier vía de ingreso, ya sea inhalación, ingestión o contacto con la piel o mucosas, causan efectos adversos al organismo, de manera inmediata o mediata, temporal o permanente, como lesiones funcionales, alteraciones genéticas, teratogénicas, mutagénicas, carcinogénicas o la muerte.
