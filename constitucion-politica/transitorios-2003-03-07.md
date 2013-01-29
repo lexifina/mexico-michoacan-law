@@ -1,5 +1,5 @@
 P.O. 7 DE MARZO DE 2003.
-DECRETO No. 246
+DECRETO NÚMERO 246 POR EL QUE SE REFORMAN LOS PÁRRAFOS PRIMERO Y SEGUNDO, Y SE ADICIONAN LOS PÁRRAFOS TERCERO, CUARTO Y QUINTO DEL ARTÍCULO 101 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 Artículo Primero.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Michoacán de Ocampo.
 Artículo Segundo.- En tanto se reforman las disposiciones legales reglamentarias que se deriven del presente decreto, seguirán aplicándose las disposiciones de la Ley de la Comisión Estatal de los Derechos Humanos publicada (sic) Sección Segunda del Periódico Oficial, el día 8 de febrero de 1993.
 Artículo Tercero.- Para dar cumplimiento a la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, se ordena a la Secretaría de inmediato hacer llegar a los Ayuntamientos del Estado la presente minuta de proyecto de decreto, para que se someta a discusión y aprobación, haciendo del conocimiento del Congreso su resultado.

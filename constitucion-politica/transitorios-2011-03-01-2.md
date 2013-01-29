@@ -1,5 +1,5 @@
 P.O. 1 DE MARZO DE 2011.
-DECRETO NUMERO 263, POR EL QUE SE REFORMAN LOS ARTICULOS 44 FRACCION XXVI, 104, 105, 106, 107, 108, 109 Y 110 DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACAN DE OCAMPO.
+DECRETO NÚMERO 263, POR EL QUE SE REFORMAN LOS ARTÍCULOS 44 FRACCIÓN XXVI, 104, 105, 106, 107, 108, 109 Y 110 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 ARTÍCULO PRIMERO. Remítase el presente Decreto a los ayuntamientos del Estado para que emitan el resultado de su votación, dentro del término de un mes, después de su notificación, en los términos de la fracción IV del Artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo.
 ARTÍCULO SEGUNDO. Una vez aprobado el presente Decreto por la mayoría de los ayuntamientos, notifíquese al Titular del Poder Ejecutivo del Estado, para su conocimiento y publicación respectiva en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 ARTÍCULO TERCERO. El Presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.

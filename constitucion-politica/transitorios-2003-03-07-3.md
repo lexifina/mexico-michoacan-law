@@ -1,5 +1,5 @@
 P.O. 7 DE MARZO DE 2003.
-DECRETO No. 248
+DECRETO NÚMERO 248 POR EL QUE SE REFORMAN LOS ARTÍCULOS 42, 44 FRACCIONES XI, XIII Y XV, 105, 109, LA DENOMINACIÓN DE LA SECCION II DEL TITULO SEXTO, LOS ARTÍCULOS 133, 134 Y 135 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 Artículo Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado, salvo lo dispuesto en los siguientes transitorios.
 Artículo Segundo. La Auditoría Superior de Michoacán, iniciará sus funciones el 1 de abril del año 2003. La revisión de las cuentas públicas y las funciones de fiscalización a que refieren las fracciones I a VIII del artículo 134 y 135 reformados por este decreto, se llevarán a cabo, en los términos del propio decreto, a partir de la revisión de las cuentas públicas del segundo trimestre correspondientes al año 2003.
 Las referencias que se hacen a la Contaduría General de Glosa en las disposiciones legales, se entenderán hechas a la Auditoría Superior de Michoacán.

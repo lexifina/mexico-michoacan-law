@@ -1,5 +1,5 @@
 P.O. 22 DE SEPTIEMBRE DE 2006.
-DECRETO No. 69
+DECRETO NÚMERO 69 POR EL QUE SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 20; EL ARTÍCULO 29; EL PÁRRAFO PRIMERO DEL ARTÍCULO 31, EL ARTÍCULO 33, EL ARTÍCULO 51; EL ARTÍCULO 54; LA FRACCIÓN X DEL ARTÍCULO 60; EL ARTÍCULO 117; Y SE DEROGA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 112 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 (REFORMADO, P.O. 9 DE FEBRERO DE 2007)
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, salvo los artículos 20, 29, 31 párrafo primero, 33, 51, 54, 60 fracción X, 112 párrafo segundo y 117, que entrarán en vigor el día primero del mes de enero del año dos mil quince.
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 2006)

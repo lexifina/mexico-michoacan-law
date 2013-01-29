@@ -1,5 +1,5 @@
 P.O. 7 DE MARZO DE 2003.
-DECRETO No. 247
+DECRETO NÚMERO 247 POR EL QUE SE REFORMA: LA DENOMINACIÓN DE LA SECCION II, DEL CAPITULO II DEL TITULO TERCERO: LOS ARTÍCULOS 30, PÁRRAFOS PRIMERO Y SEGUNDO. 31, 33, 37, FRACCIÓN V Y ULTIMO PÁRRAFO, 54, 57, 59, 60 FRACCIONES III Y IX, 61 FRACCIÓN VI, 72, 73, 157, 159 Y 160 FRACCIÓN I; SE DEROGA: EL PÁRRAFO DECIMO TERCERO DEL ARTÍCULO 13, LOS ARTÍCULOS 32, LA SECCION V, DEL CAPITULO II, DEL TITULO TERCERO, 45, 46 Y 60 FRACCIONES XVI Y XVII; DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 Artículo Primero.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 Artículo Segundo.- En tanto se reforman las disposiciones legales reglamentarias que se deriven del presente decreto, cuando se haga referencia al Tercer Período Ordinario de Sesiones, se entenderá el período comprendido del 15 de septiembre al 15 de diciembre.
 Artículo Tercero.- En tanto se reforman las disposiciones legales reglamentarias que se deriven del presente decreto, se seguirán aplicando las disposiciones de la Ley Orgánica del Congreso del Estado y su Reglamento.
