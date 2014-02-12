@@ -10,7 +10,8 @@ ARTÍCULO SEXTO. El Comité Técnico deberá constituir la cuenta del Sub-Fondo 
 ARTÍCULO SÉPTIMO. El Titular del Poder Ejecutivo del Estado publicará las disposiciones para la operación y administración del Registro Estatal de Emisiones o cualquier otra disposición necesaria para la aplicación de la presente Ley dentro de los doce meses siguientes a la publicación de esta Ley en el Periódico Oficial del Gobierno del Estado de Michoacán de Ocampo.
 ARTÍCULO OCTAVO. La Secretaria publicará el Programa Estatal de Cambio Climático dentro de los sesenta días siguientes a la publicación de la presente Ley en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 El Titular del Poder Ejecutivo del Estado, dispondrá se publique y observe.
-DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de Ocampo, a los 19 diecinueve días del mes de diciembre de 2013 dos mil trece.
+(F. DE E., P.O. 12 DE FEBRERO DE 2014)
+DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Charo, Michoacán, a los 19 diecinueve días del mes de diciembre de 2013 dos mil trece.
 ATENTAMENTE.-«SUFRAGIO EFECTIVO. NO REELECCIÓN».-PRESIDENTE DE LA MESA DIRECTIVA, DIP. OLIVIO LÓPEZ MÚJICA.-PRIMER SECRETARIO, DIP. CÉSAR MORALES GAYTÁN.- SEGUNDO SECRETARIO, DIP. JOSÉ SEBASTIÁN NARANJO BLANCO.-TERCER SECRETARIO, DIP. SARBELIO AUGUSTO MOLINA VÉLEZ (Firmados).
 En cumplimiento a lo dispuesto por el artículo 60 fracción I y 65 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 15 quince días del mes de enero del año 2014 dos mil catorce.
 SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR DEL ESTADO.- LIC. FAUSTO VALLEJO FIGUEROA.-EL SECRETARIO DE GOBIERNO.- LIC. JOSÉ JESÚS REYNA GARCÍA. (Firmados).
