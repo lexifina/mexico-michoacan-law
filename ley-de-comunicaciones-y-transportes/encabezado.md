@@ -1,4 +1,4 @@
-LEY DE COMUNICACIONES Y TRANSPORTES DEL ESTADO DE MICHOACAN
+LEY DE COMUNICACIONES Y TRANSPORTES DEL ESTADO DE MICHOACÁN
 Publicado en la Sección Segunda del Periódico Oficial del Estado de Michoacán, el lunes 19 de julio de 1982.
 CUAUHTEMOC CARDENAS SOLORZANO, Gobernador Constitucional del Estado Libre y Soberano, de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente DECRETO:
