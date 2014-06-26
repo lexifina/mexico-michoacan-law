@@ -2,12 +2,8 @@ P.O. 22 DE SEPTIEMBRE DE 2006.
 DECRETO NÚMERO 69 POR EL QUE SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 20; EL ARTÍCULO 29; EL PÁRRAFO PRIMERO DEL ARTÍCULO 31, EL ARTÍCULO 33, EL ARTÍCULO 51; EL ARTÍCULO 54; LA FRACCIÓN X DEL ARTÍCULO 60; EL ARTÍCULO 117; Y SE DEROGA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 112 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
 (REFORMADO, P.O. 9 DE FEBRERO DE 2007)
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, salvo los artículos 20, 29, 31 párrafo primero, 33, 51, 54, 60 fracción X, 112 párrafo segundo y 117, que entrarán en vigor el día primero del mes de enero del año dos mil quince.
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 2006)
-SEGUNDO. El Gobernador del Estado en funciones, concluirá su ejercicio constitucional el día catorce de febrero de dos mil ocho, periodo para el que fue electo.
-La Septuagésima Legislatura, concluirá su ejercicio constitucional el día catorce de enero del año dos mil ocho, periodo para el que fue electa.
-Los ayuntamientos del Estado, concluirán su ejercicio constitucional el día treinta y uno de diciembre del año dos mil siete, periodo para el que fueron electos.
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 2006)
-TERCERO. La elección de Gobernador del Estado, diputados y ayuntamientos, se celebrará el segundo domingo del mes de noviembre del año dos mil siete, y tomarán posesión de su encargo al concluir el periodo de los actuales.
+SEGUNDO. (DEROGADO, P.O. 25 DE JUNIO DE 2014)
+TERCERO. (DEROGADO, P.O. 25 DE JUNIO DE 2014)
 (REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE FEBRERO DE 2007)
 CUARTO. El Gobernador del Estado que se elija el segundo domingo del mes de noviembre del año dos mil siete, tendrá un periodo de ejercicio constitucional que comprenderá del día quince de febrero del año dos mil ocho, al día catorce de febrero del año dos mil doce.
 El Gobernador del Estado que se elija el segundo domingo del mes de noviembre del año dos mil once, tendrá un periodo de ejercicio constitucional que comprenderá del día quince de febrero del año dos mil doce al día treinta de septiembre del año dos mil quince.
