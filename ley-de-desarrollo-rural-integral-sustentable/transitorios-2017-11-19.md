@@ -1,5 +1,0 @@
-P.O. 19 DE NOVIEMBRE DE 2017.
-[N. DE E. TRANSITORIOS DEL "DECRETO NO. 230. QUE CONTIENE REFORMAS Y ADICIONES A LA LEY DE LAS MUJERES PARA UNA VIDA SIN VIOLENCIA".]
-ARTÍCULO PRIMERO. La presente ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
-ARTÍCULO SEGUNDO. El reglamento respectivo deberá adecuarse a la presente Ley en un término no mayor a 90 días. Los consejos Estatal y Municipal se instalaran dentro de los sesenta días siguientes a la integración del Sistema Estatal.
-ARTÍCULO TERCERO. Los recursos para llevar a cabo los programas y la implementación de las acciones que se deriven de la presente Ley, se cubrirán con cargo a las partidas presupuestales relacionadas con la atención a las mujeres del presupuesto autorizado para cada ejercicio fiscal de las dependencias y entidades estatales y municipales involucradas, las cuales harán las debidas previsiones en la planeación y programación de los subsecuentes presupuestos de egresos del Estado y los municipios, respectivamente.

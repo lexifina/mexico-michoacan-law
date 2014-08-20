@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 25 DE MAYO DE 2021)
-Artículo 20 Quáter. Las autoridades administrativas, el Ministerio Público o el órgano jurisdiccional que emita las órdenes de protección, realizará las gestiones necesarias para garantizar su cumplimiento, monitoreo y ejecución. Para lo anterior se allegará de los recursos materiales y humanos necesarios, asimismo podrá solicitar la colaboración de las autoridades competentes.

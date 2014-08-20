@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 25 DE MAYO DE 2021)
-Artículo 20 Quinquies. Las autoridades mencionadas en el Artículo 14, podrán solicitar a las autoridades correspondientes de las demás entidades federativas las ordenes de protección que estime necesarias.
-Para efectos del párrafo anterior, las autoridades administrativas, las fiscalías, los poderes judiciales federales y locales celebrarán convenios de colaboración con las entidades públicas para garantizar la efectiva protección de las mujeres y las niñas conforme a los principios rectores de las órdenes de protección.
-Durante los primeros seis días posteriores a la implementación de las órdenes, la autoridad que la emitió mantendrá contacto directo con la mujer víctima de violencia cada 24 horas. A partir del séptimo día, se establecerá un plan de seguimiento personalizado, de acuerdo a las circunstancias, la valoración del riesgo y el avance en la carpeta de investigación.
