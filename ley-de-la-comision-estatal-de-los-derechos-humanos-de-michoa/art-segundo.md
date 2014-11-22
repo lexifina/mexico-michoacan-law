@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de La Comisión Estatal de los Derechos Humanos, publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo el 24 de diciembre de 2007, mediante Decreto número 271.
