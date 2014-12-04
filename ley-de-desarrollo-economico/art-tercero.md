@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La Secretaría de Desarrollo Económico establecerá en un plazo de 90 días un programa para la activa difusión de las normas del presente ordenamiento y sus beneficios para el desarrollo económico del Estado.

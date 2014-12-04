@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Por única ocasión el Poder Legislativo designará a los consejeros del sector privado, mediante convocatoria pública; considerando los requisitos mencionados en la presente ley; dicha designación deberá ser a más tardar 90 días posteriores a la entrada en vigor de la presente.
