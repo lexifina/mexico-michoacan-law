@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
+ARTICULO 26-A. El Gobernador, por conducto del titular de la Secretaría de Finanzas y Administración, podrá celebrar convenios de colaboración administrativa con otros Estados y el Distrito Federal y con los Ayuntamientos, en las materias de verificación, determinación y recaudación de las contribuciones, así como para la notificación de créditos fiscales y aplicación del procedimiento administrativo de ejecución.

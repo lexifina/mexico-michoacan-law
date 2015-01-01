@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
+ARTICULO 19-C. Para el cumplimiento de obligaciones y pago de contribuciones, si el último día del plazo o en la fecha determinada, las oficinas recaudadoras permanecen cerradas durante el horario normal de labores, se trate de un día inhábil, o no exista el mismo día en el mes de calendario correspondiente, se prorrogará el plazo hasta el día hábil siguiente. Lo dispuesto en este artículo es aplicable inclusive cuando se autorice a las instituciones de crédito para recibir declaraciones.

@@ -1,0 +1,23 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
+ARTICULO 123-A. La garantía del interés fiscal se otorgará a favor del Gobierno del Estado de Michoacán o la Secretaría en los términos siguientes:
+I. El depósito de dinero, podrá otorgarse mediante billete o certificado expedido por las instituciones de crédito legalmente autorizadas, o en efectivo mediante el recibo oficial expedido por la autoridad fiscal, cuyo original se entregará al interesado;
+II. Tratándose de prenda o hipoteca se constituirá sobre los siguientes bienes:
+A) Bienes muebles, por el 75% de su valor de avalúo.
+No serán admisibles como garantía, los bienes que ya se encuentren embargados por autoridades fiscales, judiciales o en el dominio de los acreedores.
+Los de procedencia extranjera, sólo se admitirán cuando se compruebe su legal estancia en el país.
+B) Bienes inmuebles, por el 75% del valor que se determine por avalúo que practique perito autorizado por la Secretaría. Para estos efectos se deberá acompañar a la solicitud respectiva, el certificado de libertad de gravamen y que no reporte afectación urbanística o agraria, documento que será aceptado siempre y cuando a la fecha de presentación el mismo no tenga más de 30 días de que fue expedido. En el supuesto de que el inmueble reporte gravámenes, la suma del monto total de éstos y el interés fiscal a garantizar no podrá exceder del 75% del valor de avalúo.
+En la hipoteca, el otorgamiento de la garantía se hará en escritura pública que deberá inscribirse en el Registro Público de la Propiedad y contener los datos relacionados con el crédito fiscal. El otorgante podrá garantizar con la misma hipoteca los recargos futuros o ampliar la garantía cada año.
+III. En caso de que se garantice mediante fianza, ésta deberá quedar en poder y guarda de la autoridad fiscal, para que solicite su cobro en caso de que así proceda;
+IV. Tratándose del embargo en la vía administrativa, se sujetará a lo previsto al efecto en este Código y a las reglas siguientes:
+A) Se practicará a solicitud del contribuyente, quien deberá acompañar los documentos que señale la forma oficial correspondiente y a falta de ésta en escrito libre.
+B) El contribuyente señalará los bienes en que deba trabarse el embargo, debiendo ser suficientes para garantizar el interés fiscal, los cuales se aceptarán bajo las condiciones siguientes:
+1. Bienes muebles, por el 75% de su valor de avalúo.
+No serán admisibles como garantía, los bienes que ya se encuentren embargados por autoridades fiscales, judiciales o en el dominio de los acreedores. Los de procedencia extranjera, sólo se admitirán cuando se compruebe su legal estancia en el país.
+2. Bienes inmuebles y negociaciones, por el 75% del valor de avalúo o avalúo pericial, según corresponda. Para estos efectos se deberá acompañar a la solicitud respectiva, el certificado de libertad de gravamen y que no reporte afectación urbanística o agraria; documento que será aceptado siempre y cuando a la fecha de presentación el mismo no tenga más de 30 días de que fue expedido. En el supuesto de que el inmueble o la negociación reporte gravámenes, la suma del monto total de estos y el interés fiscal a garantizar no podrá exceder del 75% del valor de avalúo.
+3. Tratándose de personas físicas el depositario de los bienes será el propietario y en el caso de personas jurídico colectivas el representante legal, quien podrá ser removido libremente de su cargo por la autoridad recaudadora.
+4. Deberán cubrirse con anticipación a la práctica de la diligencia de embargo en la vía administrativa, los gastos de ejecución que resulten aplicables conforme a este Código. El pago así efectuado tendrá el carácter de definitivo y en ningún caso procederá su devolución una vez practicada la diligencia.
+V. Para que un tercero asuma la obligación de garantizar el interés fiscal, deberá sujetarse a lo siguiente:
+A) Manifestará su aceptación mediante escrito firmado ante la autoridad recaudadora que tenga encomendado el cobro del crédito fiscal, identificándose a satisfacción de la misma, ante la presencia de dos testigos, señalando el tipo de garantía que otorga como responsable solidario;
+B) Cuando sea persona moral la que garantice el interés fiscal, el monto de la garantía deberá ser menor al 10% de su capital social mínimo fijo; y
+C) Demostrar tener domicilio legal en el territorio del Estado.
+Para formalizar el otorgamiento de la garantía, el titular de la oficina recaudadora que corresponda, deberá levantar acta de embargo de la que entregará copia a los interesados y solicitará su inscripción, cuando proceda, en el Registro Público de la Propiedad.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
+ARTICULO 18-B. La determinación de los créditos fiscales corresponde a los contribuyentes, salvo disposición expresa en contrario. En caso de que la autoridad fiscal deba realizar esta determinación, los contribuyentes, proporcionarán la información y documentación necesaria dentro de los quince días siguientes contados a partir de que surta efectos la notificación del requerimiento de la autoridad.
