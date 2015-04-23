@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO. El Gobernador del Estado deberá proponer al Poder Legislativo, en el Presupuesto de Egresos para el primer año de operaciones, una partida presupuestal de 20 millones de pesos, para incentivar la operación del seguro, a través de los Fondos de Aseguramiento, materia de la presente Ley.
+Esta partida presupuestal será integrada al presupuesto anual de la Secretaría de Desarrollo Rural, y variará cada año de acuerdo al resultado de la superficie asegurada.
