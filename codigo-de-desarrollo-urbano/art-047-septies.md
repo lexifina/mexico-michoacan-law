@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2015)
+ARTÍCULO 47 Septies.- Los Observatorios Urbanos tendrán a su cargo las tareas de difundir de manera sistemática y periódica, a través de indicadores, mediante sistemas de información geográfica, la información relativa a ordenamiento territorial y desarrollo urbano sustentable, así como la evolución de los fenómenos y problemas urbanos y metropolitanos de la entidad y de cada Municipio.

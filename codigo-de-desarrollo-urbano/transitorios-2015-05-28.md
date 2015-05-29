@@ -1,0 +1,6 @@
+P. O. 28 DE MAYO DE 2015.
+ARTÍCULO PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado Libre y Soberano de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Los procedimientos que se encuentren en trámite a la fecha de la entrada en vigor del presente decreto, seguirán desarrollándose observando las normas contenidas en el Código de Desarrollo Urbano del Estado de Michoacán vigente al momento de iniciar su procedimiento respectivo, hasta su conclusión.
+ARTÍCULO TERCERO. El Gobierno del Estado a través de la Secretaría de Urbanismo y Medio Ambiente deberá implementar el Sistema Estatal de Planeación del Ordenamiento Territorial y el Desarrollo Urbano Sustentable en el Estado (sic) un plazo no mayor a los 180 días contados a la fecha de entrada en vigor del presente decreto.
+ARTÍCULO CUARTO. La Secretaría de Urbanismo y Medio Ambiente deberá expedir las Guías Metodológicas para la Elaboración de los Programas de Desarrollo Urbano en un plazo no mayor a los 180 días contados a la fecha de entrada en vigor del presente decreto.
+ARTÍCULO QUINTO. Los Programas de Desarrollo Urbano que se formulen, modifiquen o actualicen posterior a la entrada en vigor del presente decreto, deberán ajustarse a lo dispuesto en el mismo.

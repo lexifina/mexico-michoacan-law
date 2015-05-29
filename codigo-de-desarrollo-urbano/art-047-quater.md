@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2015)
+ARTÍCULO 47 Quater.- El Instituto Municipal de Planeación (IMPLAN) tendrá por objeto principal contribuir con el Ayuntamiento y la Administración Pública Municipal en el diseño, instrumentación, identificación, gestión, preparación, establecimiento y evaluación de planes, programas, proyectos, políticas, estrategias, acciones, normas, principios y bases para la integración y funcionamiento permanente de un sistema de planeación participativa, que promueva el desarrollo integral del Municipio y sus habitantes.

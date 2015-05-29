@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2015)
+ARTÍCULO 56 Bis.- El Sistema Estatal de Planeación del Ordenamiento Territorial y el Desarrollo Urbano Sustentable en el Estado, tiene como objetivo establecer, alcanzar y preservar el ordenamiento urbano, que impulse el desarrollo urbano y el desarrollo integral de los centros de población, a través de los Institutos Municipales de Planeación o áreas de planeación estratégica establecidas para tal efecto.
