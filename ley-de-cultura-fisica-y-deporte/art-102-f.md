@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2015)
+Artículo 102 F. Los deportistas, entrenadores, técnicos, directivos y demás personas, en el ámbito de la disciplina deportiva, deberán actuar conforme a las disposiciones y lineamientos que para prevenir y erradicar la violencia en el deporte emita la Comisión Especial, así como los establecidos en las disposiciones reglamentarias y estatutarias emitidas por las Asociaciones Deportivas Nacionales, Estatales y Municipales respectivas.
