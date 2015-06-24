@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Se abroga el Decreto número 158 publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo con fecha 6 de abril de 1998, por el cual se crea la Comisión de Pesca del Estado de Michoacán.

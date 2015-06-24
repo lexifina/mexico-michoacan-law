@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El Titular del Poder Ejecutivo del Estado en un plazo de noventa días contados a partir de la entrada en vigor del presente Decreto, deberá emitir la disposición reglamentaria correspondiente y realizar las acciones necesarias para la debida observancia e instrumentación de lo preceptuado en el presente Decreto.
