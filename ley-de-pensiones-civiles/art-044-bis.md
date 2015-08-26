@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 25 DE AGOSTO DE 2015)
+ARTICULO 44 Bis.- La Dirección constituirá un fondo especial que tendrá por objeto liquidar los créditos por préstamo (sic) hipotecarios otorgados a jubilados y pensionados, derivados de los contratos a que se refieren los artículos 31 y 37 de esta ley, que quedaren insolutos al fallecer el jubilado o pensionado a quien se hubiere otorgado.
+A la muerte del deudor, la dirección cancelará a favor de los beneficiarios de aquél y con cargo a dicho fondo, el saldo insoluto.
+La Junta Directiva reglamentará la forma de constituir el fondo y los términos en que los interesados deberán contribuir al mismo.
+En ningún caso habrá lugar a la devolución de las aportaciones que los acreditados hagan para constituir el fondo a que se refiere este precepto.

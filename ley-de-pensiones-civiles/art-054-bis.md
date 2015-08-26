@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 31 DE ENERO DE 1983)
-ARTICULO 54 BIS.- La jubilación será forzosa cuando los servidores públicos tengan 30 años o mas de contribuir al fondo de pensiones y 60 años o más de edad, pudiendo continuar en el trabajo cuando así convenga al servicio público, previo acuerdo de la Junta Directiva de Pensiones.
+(REFORMADO, P.O. 25 DE AGOSTO DE 2015)
+ARTICULO 54 Bis.- La jubilación será forzosa cuando los servidores públicos tengan treinta años o más de contribuir al fondo de pensiones y sesenta años o más de edad, pudiendo continuar en el trabajo cuando así convenga al servicio público, previo acuerdo de las entidades públicas, organismos descentralizados y municipios de la entidad que se acojan a los beneficios de esta ley.
