@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO. El Congreso del Estado de Michoacán de Ocampo, deberá en un término de 90 días contados a partir de la entrada en vigor del presente Decreto, reformar la Ley de Adquisiciones, Arrendamientos y Prestación de Servicios Relacionados con Bienes Muebles e Inmueble (sic) del Estado de Michoacán de Ocampo y la Ley de Obra Pública y Servicios Relacionados con la misma para el Estado de Michoacán de Ocampo y sus Municipios.
+Lo previsto en el segundo párrafo del artículo 17 del presente Decreto, entrará en vigor cuando se dé cabal cumplimiento al párrafo anterior.

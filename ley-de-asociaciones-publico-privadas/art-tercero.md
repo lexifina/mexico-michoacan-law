@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Se abroga la Ley de Proyectos para Prestación de Servicios del Estado de Michoacán de Ocampo y sus Municipios. Se dejan sin efectos todas las disposiciones en la materia que se opongan a la presente Ley.
