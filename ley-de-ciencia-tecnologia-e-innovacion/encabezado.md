@@ -1,5 +1,4 @@
 LEY DE CIENCIA, TECNOLOGÍA E INNOVACIÓN DEL ESTADO DE MICHOACÁN
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO OCTAVO TRANSITORIO DEL DECRETO NÚMERO 557, PUBLICADO EN EL P.O. DE 29 DE SEPTIEMBRE DE 2015, TODAS LAS MENCIONES QUE SE REFIEREN AL CONSEJO ESTATAL DE CIENCIA Y TECNOLOGÍA E INNOVACIÓN, SE ENTENDERÁN REFERIDAS A LA SECRETARÍA DE INNOVACIÓN, CIENCIA Y DESARROLLO TECNOLÓGICO.
 Ley publicada en el Periódico Oficial del Estado de Michoacán, el martes 7 de febrero de 2012.
 LEONEL GODOY RANGEL, Gobernador Constitucional del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente:

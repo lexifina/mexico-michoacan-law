@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2015)
+ARTÍCULO 73 TER. Los investigadores, tecnólogos, académicos y estudiantes de maestría, doctorado y posdoctorado, cuya actividad de investigación sea financiada con recursos públicos estatales o que hayan utilizado infraestructura pública en su realización, por decisión personal podrán autorizar expresamente el depósito de una copia de la versión final aceptada para publicar en acceso abierto, comprobando que han cumplido con el proceso de aprobación respectivo, lo anterior bajo los términos que al efecto establezca el CECTI.
