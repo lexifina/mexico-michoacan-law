@@ -1,0 +1,3 @@
+P.O. 25 DE ABRIL DE 2016.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 135 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 1°, 2°, 3°, 4°, 6°, 7°, 8°, 9°, 11, 12, 13, 14, 16, 17, 19, 22 FRACCIÓN II, 31 FRACCIÓN I, 32, 35, 38; ASÍ COMO LA DENOMINACIÓN DE LOS CAPÍTULOS CUARTO, QUINTO, OCTAVO Y NOVENO; Y, SE ADICIONAN LOS INCISOS DEL A) AL X) AL ARTÍCULO 3°; TODOS DE LA LEY DE LOS JÓVENES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
