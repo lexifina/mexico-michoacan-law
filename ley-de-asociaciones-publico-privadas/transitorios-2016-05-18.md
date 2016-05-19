@@ -1,0 +1,4 @@
+P.O. 18 DE MAYO DE 2016.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 143 POR EL QUE "SE REFORMA EL SEGUNDO PÁRRAFO DEL ARTÍCULO 1º DE LA LEY DE ASOCIACIONES PÚBLICO PRIVADAS PARA EL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El Presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Dese cuenta del presente Decreto al Titular del Poder Ejecutivo del Estado, para su conocimiento y trámite correspondiente.
