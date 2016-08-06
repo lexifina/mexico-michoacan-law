@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE AGOSTO DE 2016)
+ARTÍCULO 3° Bis. A falta de disposición expresa en esta Ley, se aplicarán de manera supletoria la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios, la Ley Federal de Presupuesto y Responsabilidad Hacendaria, la Ley General de Contabilidad Gubernamental, la Ley de Coordinación Fiscal y la Ley de Coordinación Fiscal del Estado de Michoacán de Ocampo; y se estará a la interpretación de la Secretaría para efectos administrativos.
