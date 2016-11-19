@@ -1,5 +1,4 @@
 LEY DE ADOPCIÓN DEL ESTADO DE MICHOACÁN DE OCAMPO
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 30 DE JULIO DE 2013.
 Ley publicada en la Sexta Sección del Periódico Oficial del Estado de Michoacán, el lunes 1 de julio de 2013.
 JOSÉ JESÚS REYNA GARCÍA, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente:
