@@ -13,4 +13,4 @@ PALACIO DEL PODER LEGISLATIVO. Morelia, Michoacán de Ocampo, a 28 de mayo de 19
 DIPUTADO PRESIDENTE.- FRANCISCO JOSE PEREZ PEREZ.- DIPUTADO SECRETARIO.- VICTOR CORONA ALVA.- DIPUTADO SECRETARIO.- JAIME OSEGUERA HERRERA.- (Firmados).
 En cumplimiento a lo dispuesto por la fracción I del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 3 tres días del mes de junio de 1998, mil novecientos noventa y ocho.
 SUFRAGIO EFECTIVO. NO REELECCION.- EL GOBERNADOR DEL ESTADO.- LIC. VICTOR MANUEL TINOCO RUBI.- EL SECRETARIO DE GOBIERNO.- LIC. ANTONIO GARCIA TORRES.- (Firmados).
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

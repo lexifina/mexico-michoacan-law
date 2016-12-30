@@ -1,4 +1,0 @@
-B.O. 31 DE DICIEMBRE DE 2017.
-[N. DE E. TRANSITORIOS DEL "DECRETO 2517.- SE REFORMAN LOS ARTÍCULOS 305 I, 305 J SEGUNDO PÁRRAFO, 305 K, 314, 507 ÚLTIMO PÁRRAFO, 558 PRIMER PÁRRAFO Y 558 BIS PÁRRAFOS PRIMERO Y SEGUNDO, DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR Y SE REFORMA EL ARTÍCULO 106 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE BAJA CALIFORNIA SUR".]
-Primero.- El presente Decreto entrara en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
-Segundo.- Se derogan las disposiciones que se opongan al presente Decreto.

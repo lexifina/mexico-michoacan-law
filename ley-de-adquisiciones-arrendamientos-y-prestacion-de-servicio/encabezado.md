@@ -1,4 +1,4 @@
-LEY DE ADQUISICIONES, ARRENDAMIENTOS Y PRESTACION DE SERVICIOS RELACIONADOS CON BIENES MUEBLES E INMUEBLE (SIC) DEL ESTADO DE MICHOACAN DE OCAMPO
+LEY DE ADQUISICIONES, ARRENDAMIENTOS Y PRESTACIÓN DE SERVICIOS RELACIONADOS CON BIENES MUEBLES E INMUEBLE (SIC) DEL ESTADO DE MICHOACÁN DE OCAMPO
 Ley publicada en la Sección Tercera del Periódico Oficial del Estado de Michoacán, el jueves 11 de junio de 1998.
 VICTOR MANUEL TINOCO RUBI, Gobernador Constitucional del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado se ha servido dirigirme el siguiente

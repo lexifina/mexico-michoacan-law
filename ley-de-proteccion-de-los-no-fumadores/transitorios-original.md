@@ -9,3 +9,4 @@ DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de O
 PRESlDENTE.- DlP. ELlGIO CUITLÁHUAC GONZÁLEZ FARÍAS.-PRIMER SECRETARIO.- DIP. GUSTAVO ÁVILA VÁZQUEZ.- SEGUNDA SECRETARIA.- DIP. MARÍA MACARENA CHÁVEZ FLORES.- TERCER SECRETARIO.- DIP. JUAN MANUEL MACEDO NEGRETE. (Firmados).
 En cumplimiento a lo dispuesto por la fracción I, del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 21 veintiún días del mes de octubre del año 2008 dos mil ocho.
 SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LEONEL GODOY RANGEL.- EL SECRETARIO DE GOBIERNO.- FIDEL CALDERÓN TORREBLANCA. (Firmados)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
