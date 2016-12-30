@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2016)
+Artículo 57 Bis. Los Juegos Tradicionales y Autóctonos; y, la Charrería, serán considerados como parte del patrimonio cultural deportivo del Estado de Michoacán; por lo que el Estado y los Municipios en el ámbito de sus respectivas competencias deberán preservarlos, apoyarlos, promoverlos, fomentarlos y estimularlos, celebrando convenios de coordinación y colaboración entre ellos y con las Asociaciones Deportivas Estatales y Municipales; de conformidad con la Ley General de Cultura Física y Deporte.
