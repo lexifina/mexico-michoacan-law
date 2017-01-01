@@ -1,0 +1,7 @@
+P.O. 31 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 335 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 37 PRIMER PÁRRAFO; 52 PRIMER PÁRRAFO; Y SE DEROGAN LOS ARTÍCULOS 21 Y 31 DE LA LEY DE PLANEACIÓN HACENDARIA, PRESUPUESTO, GASTO PÚBLICO Y CONTABILIDAD GUBERNAMENTAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el 1° de enero del año 2017, previa su publicación, en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. Los reglamentos, manuales y demás disposiciones administrativas que en materia presupuestario (sic) emita el Ejecutivo del Estado, deberán de adecuarse a lo dispuesto en el Presente Decreto, a efecto de estar considerados en el Proyecto de Presupuesto de Egresos.
+CUARTO. Dese cuenta del presente Decreto al Titular del Poder Ejecutivo del Estado, al Titular de la Secretaría de Finanzas y Administración del Gobierno del Estado, y al Titular de la Auditoría Superior de Michoacán, para su conocimiento y efectos legales conducentes.
+QUINTO. El porcentaje a que hace (sic) referencia los artículos derogados 21 y 31, relativo a los adeudos del ejercicio fiscal, de conformidad con la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios, será del cinco por ciento para el ejercicio 2017, cuatro por ciento para el 2018, tres por ciento para el 2019 y, a partir del 2020 se observará el porcentaje establecido en la citada Ley.

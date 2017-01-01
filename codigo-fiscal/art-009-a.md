@@ -4,7 +4,7 @@ I. Toda transmisión de propiedad que se realice conforme las previsiones de la 
 II. Las adjudicaciones, aún cuando se realicen a favor del acreedor;
 III. Las aportaciones a una sociedad o asociación;
 IV. La que se realice mediante el arrendamiento financiero:
-V La que se realice a través del fideicomiso, en los siguientes casos:
+V. La que se realice a través del fideicomiso, en los siguientes casos:
 A) En el acto en el que el fideicomitente designa o se obliga a designar fideicomisario diverso de él y siempre que no tenga derecho a readquirir del fiduciario los bienes;
 B) En el acto en el que el fideicomitente pierda el derecho a readquirir los bienes del fiduciario, si se hubiera reservado tal derecho;
 VI. La cesión de los derechos que se tengan sobre los bienes afectos al fideicomiso, en cualquiera de los siguientes momentos:

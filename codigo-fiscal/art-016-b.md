@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
 ARTICULO 16-B. Son obligaciones de los contribuyentes:
 I. Inscribirse en el Registro Estatal de Contribuyente en un plazo que no excederá de treinta días a partir de la fecha en que se genere la obligación fiscal, utilizando las formas oficiales.
-Tratándose del Impuesto sobre Tenencia o Uso de Vehículos, inscribir el vehículo en el padrón vehicular de la entidad, dentro de los quince días siguientes contados a partir de la fecha de adquisición;
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2016)
+Inscribir el vehículo en el padrón vehicular de la entidad, dentro de los quince días siguientes contados a partir de la fecha de adquisición;
 II. Señalar el domicilio fiscal en el que realicen actividades por las que se generen obligaciones fiscales, el cual será único para aquellos contribuyentes que cuenten con una o más sucursales, debiendo informar de los cambios de domicilio. Cuando en las formas de declaración se prevea el señalamiento de cambio de domicilio fiscal y así se manifieste, se considerará presentado el aviso a que se refiere este artículo al presentar dicha declaración ante la autoridad recaudadora correspondiente;
 III. Consignar en las declaraciones, manifestaciones y avisos previstos en este Código, la clave de Registro Estatal de Contribuyente asignada por la autoridad fiscal;
 IV. Declarar y en su caso, pagar los créditos fiscales en los términos que disponga este Código y la Ley;
