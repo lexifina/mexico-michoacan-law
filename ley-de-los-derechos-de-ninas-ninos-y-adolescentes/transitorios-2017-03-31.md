@@ -1,0 +1,3 @@
+P.O. 31 DE MARZO DE 2017.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 343 POR EL QUE "SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 29, Y SE ADICIONA EL ARTÍCULO 31 BIS, ASÍ COMO EL PÁRRAFO TERCERO Y LAS FRACCIONES VI Y VII AL ARTÍCULO 32 DE LA LEY DE LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
