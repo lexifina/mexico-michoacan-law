@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 25 DE ABRIL DE 2017)
+Artículo 55 sexies. El Sistema para el Desarrollo Integral de la Familia Michoacana y la Procuraduría de Protección, en el ámbito de su competencia, deberán conformar una coordinación de seguimiento que verifique la actualización del debido acceso y ejercicio de los derechos de las niñas y los niños que viven con sus madres en prisión y que prevenga el maltrato, violencia, discriminación o cualquier otro tipo de abuso o conducta lesiva en contra de aquellos.
+Los centros penitenciarios garantizarán la implementación de las políticas públicas establecidas por el Sistema para el Desarrollo Integral de la Familia Michoacana.

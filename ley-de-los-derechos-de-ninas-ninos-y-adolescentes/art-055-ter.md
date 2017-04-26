@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE ABRIL DE 2017)
+Artículo 55 ter. Las autoridades estatales y municipales, en el ámbito de sus respectivas competencias, están obligadas a crear, implementar, instrumentar y ejecutar programas especiales y políticas públicas tendientes a garantizar el pleno desarrollo de las niñas y niños que viven con sus madres en centros penitenciarios; con el fin de garantizarles una mejor calidad de vida, el ejercicio de sus derechos y la entera satisfacción de sus necesidades básicas.

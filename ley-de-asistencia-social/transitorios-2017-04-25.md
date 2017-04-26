@@ -1,0 +1,5 @@
+P.O. 25 DE ABRIL DE 2017.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 353 POR EL QUE "SE ADICIONA LA FRACCIÓN III AL ARTÍCULO 5° RECORRIÉNDOSE LAS DEMÁS FRACCIONES EN SU ORDEN; SE REFORMA LA FRACCIÓN XVI Y ASE ADICIONAN LAS FRACCIONES XVII, XVIII Y XIX AL ARTÍCULO 9 DE LA LEY DE ASISTENCIA SOCIAL PARA EL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Una vez entrado en vigor el presente Decreto, el Sistema para el Desarrollo Integral de la Familia Michoacana realizará un ajuste presupuestal para implementar programas especiales para la atención integral de las niñas y niños que viven con sus madres en centros penitenciarios.
+TERCERO. El Titular del Poder Ejecutivo del Estado de Michoacán de Ocampo, a partir del Presupuesto de Egresos para el ejercicio fiscal 2018, deberá hacer las previsiones presupuestarias para la implementación de los programas especiales para la atención integral de las niñas y niños que viven con sus madres en centros penitenciarios.
