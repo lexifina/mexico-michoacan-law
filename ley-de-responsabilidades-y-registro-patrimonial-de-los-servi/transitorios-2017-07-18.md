@@ -1,0 +1,5 @@
+P.O. 18 DE JULIO DE 2017.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 368 POR EL QUE "SE EXPIDE LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DEL ESTADO DE MICHOACAN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Se derogan los capítulos I, II, VI y VII de la Ley de Responsabilidades y Registro Patrimonial de los Servidores Públicos del Estado de Michoacán y sus Municipios, publicada mediante Decreto 337 en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, de fecha 14 de octubre del año 2014.
+TERCERO. Los procedimientos iniciados con anterioridad a la entrada en vigencia de la presente Ley, se seguirán sustanciando con la Ley de Responsabilidades y Registro Patrimonial de los Servidores Públicos del Estado de Michoacán y sus Municipios, publicada mediante Decreto 337 en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, de fecha 14 de octubre del año 2014.
