@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+Artículo 297 O. Las autoridades cuyos actos sean susceptibles de impugnarse ante el Tribunal, deberán registrar en la Secretaría de Acuerdos o ante la Presidencia del Tribunal, según corresponda, la Dirección de Correo Electrónico Institucional, así como el domicilio oficial de las unidades administrativas a las que corresponda su representación en los juicios administrativos, para el efecto de emplazarlas electrónicamente a juicio en aquellos casos en los que tengan el carácter de autoridad demandada.
+En el caso de que las autoridades demandadas no cumplan con esta obligación, todas las notificaciones que deben hacerse, incluyendo el emplazamiento, se harán por lista, hasta que se cumpla con dicha formalidad.

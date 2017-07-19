@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+Artículo 297 Q. En caso que el Tribunal advierta que alguna persona modificó, alteró, destruyó o provocó la pérdida de información contenida en el SIT, se tomarán las medidas de protección necesarias, para evitar dicha conducta hasta que concluya el juicio, el cual se continuará tramitando a través de un juicio en la vía tradicional.
+Si el responsable es usuario del Sistema, se cancelará su Firma Electrónica Avanzada, Clave y Contraseña para ingresar al SIT y no tendrá posibilidad de volver a promover juicios en línea.
+Sin perjuicio de lo anterior, y de las responsabilidades penales respectivas, se impondrá al responsable una multa de trescientas a quinientas veces el valor diario de la unidad de medida y actualización al momento de cometer la infracción.

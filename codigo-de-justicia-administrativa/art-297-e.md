@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+Artículo 297 E. La Firma Electrónica Avanzada, Clave de Acceso y Contraseña se proporcionarán, a través del SIT, previa obtención del registro y autorización correspondientes. El registro de la Firma Electrónica Avanzada, Clave de Acceso y Contraseña, implica el consentimiento expreso de que dicho sistema registrará la fecha y hora en la que se abran los archivos electrónicos, que contengan las constancias que integran el Expediente Electrónico, para los efectos legales establecidos en este ordenamiento.
+Para hacer uso del SIT deberán observarse los lineamientos que, para tal efecto, expida el Tribunal.

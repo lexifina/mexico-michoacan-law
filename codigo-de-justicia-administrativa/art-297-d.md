@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+Artículo 297 D. En el SIT se integrará el Expediente Electrónico, mismo que incluirá todas las promociones, pruebas y otros anexos que presenten las partes, oficios, acuerdos, y resoluciones tanto interlocutorias como definitivas, así como las demás actuaciones que deriven de la substanciación del juicio en línea, garantizando su seguridad, inalterabilidad, autenticidad, integridad y durabilidad, conforme a los lineamientos que expida el Tribunal.
+En los juicios en línea, la autoridad requerida, desahogará las pruebas testimoniales utilizando el método de videoconferencia, cuando ello sea posible.

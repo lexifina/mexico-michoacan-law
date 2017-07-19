@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+Artículo 297 P. Para la presentación y trámite de los recursos de revisión y juicios de amparo que se promuevan contra las actuaciones y resoluciones derivadas del Juicio en Línea, no será aplicable lo dispuesto en el presente Capítulo.
+El Secretario General de Acuerdos del Tribunal, Secretarios de Estudio y Cuenta y Secretarios de Acuerdos según corresponda, deberán imprimir el archivo del Expediente Electrónico y certificar las constancias del juicio que deban ser remitidos a los Juzgados de Distrito y Tribunales Colegiados de Circuito, cuando se impugnen resoluciones de los juicios correspondientes a su mesa.
+Sin perjuicio de lo anterior, en aquellos casos en que así lo solicite el Juzgado de Distrito o el Tribunal Colegiado, se podrá remitir la información a través de medios electrónicos.
