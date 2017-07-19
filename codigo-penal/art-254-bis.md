@@ -1,10 +1,12 @@
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 19 DE AGOSTO DE 2016)
-CAPÍTULO XII
+(ADICIONADO, P.O. 18 DE JULIO DE 2017)
+CAPÍTULO XIV
 ENRIQUECIMIENTO ILÍCITO
-(ADICIONADO, P.O. 19 DE AGOSTO DE 2016)
+(ADICIONADO [N. DE E. REFORMADO], P.O. 18 DE JULIO DE 2017)
 Artículo 254 bis. Enriquecimiento Ilícito.
 Se sancionará a quien con motivo de su empleo, cargo o comisión en el servicio público, haya incurrido en enriquecimiento ilícito. Existe enriquecimiento ilícito cuando el servidor público no pudiere acreditar el legítimo aumento de su patrimonio o la legítima procedencia de los bienes a su nombre o de aquellos respecto de los cuales se conduzca como dueño.
-Incurre en responsabilidad penal, asimismo, quien haga figurar como suyos bienes que un servidor público adquiera o haya adquirido.
-Al responsable del delito de enriquecimiento ilícito se le aplicarán las siguientes penas:
-I. Cuando el monto no exceda de quinientos mil pesos la pena será de seis meses a cuatro años de prisión; o,
-II. Cuando el monto exceda de quinientos mil pesos la pena será de dos a catorce años de prisión.
+Para efectos del párrafo anterior, se computarán entre los bienes que adquieran los servidores públicos o con respecto de los cuales se conduzcan como dueños, los que reciban o de los que dispongan su cónyuge y sus dependientes económicos directos, salvo que el servidor público acredite que éstos los obtuvieron por sí mismos.
+No será enriquecimiento ilícito en caso de que el aumento del patrimonio sea producto de una conducta que encuadre en otra hipótesis del presente Título. En este caso se aplicará la hipótesis y la sanción correspondiente, sin que dé lugar al concurso de delitos.
+Al que cometa el delito de enriquecimiento ilícito se le impondrán las siguientes sanciones:
+I. Decomiso en beneficio del Estado de aquellos bienes cuya procedencia no se logre acreditar;
+II. Cuando el monto a que ascienda el enriquecimiento ilícito no exceda del equivalente de cinco mil veces el valor diario de la Unidad de Medida y Actualización, se impondrán de tres meses a dos años de prisión y de treinta a cien días multa; o,
+III. Cuando el monto a que ascienda el enriquecimiento ilícito exceda del equivalente de cinco mil veces el valor diario de la Unidad de Medida y Actualización se impondrán de dos años a catorce años de prisión y de cien a ciento cincuenta días multa.
