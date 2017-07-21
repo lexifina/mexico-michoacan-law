@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE JULIO DE 2017)
+Artículo 57 Quinquies.- Cuando las dependencias y entidades de la administración pública centralizada, así como los ayuntamientos y entidades paramunicipales realicen obra pública conforme a lo establecido en el artículo 2, fracción I, de la presente Ley, ya sea esta por contrato o por adjudicación directa, bajo los procedimientos establecidos en la misma, los contratistas serán los directamente responsables de proporcionar la información señalada en el artículo 57 BIS de la presente Ley y sus reglamentos.

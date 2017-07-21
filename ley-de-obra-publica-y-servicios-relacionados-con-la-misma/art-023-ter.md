@@ -3,7 +3,8 @@ Artículo 23 Ter.- El Comité de Apoyo para la Adjudicación y Fallo de los Conc
 I. El Titular de la Secretaría;
 II. El Titular de la Secretaría de Finanzas y Administración;
 III. El Titular de la Secretaría de Urbanismo y Medio Ambiente;
-IV. El Titular de la Coordinación; y,
+(REFORMADA, P.O. 20 DE JULIO DE 2017)
+IV. El Titular de la Secretaría de Contraloría; y,
 V. El Titular del área requirente.
 Como invitado permanente, el titular de la Cámara de la delegación Michoacán, sólo con derecho a voz.
 Además con el objeto de garantizar la participación ciudadana en su conformación, se deberá invitar a los representantes de las Cámaras que correspondan, asociaciones, colegios de profesionistas y ciudadanos reconocidos por la comunidad para verificar la transparencia de los procedimientos de licitación y adjudicación, sólo con derecho a voz.
