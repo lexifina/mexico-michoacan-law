@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
 ARTÍCULO 11-A. Los coeficientes para la distribución de la parte a que se refiere el artículo 6°-A de esta Ley, se determinan utilizando los parámetros siguientes:
 I. Monto recaudado del Impuesto Predial de los dos últimos ejercicios fiscales, de cada uno de los Municipios que hayan celebrado Convenio con el Gobierno del Estado, para que éste sea el responsable de la administración del Impuesto Predial;
