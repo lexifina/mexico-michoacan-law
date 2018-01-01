@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2009)
 ARTICULO 47-B. Para comprobar los ingresos, el valor de los actos o actividades, así como las remuneraciones por los que deban pagar contribuciones los contribuyentes, las autoridades fiscales presumirán, salvo prueba en contrario, que la información o documentos de terceros relacionados con el contribuyente, corresponden a operaciones realizadas por éste, cuando:
 I. Se refieran al contribuyente designado por su nombre, denominación o razón social;
