@@ -1,0 +1,4 @@
+P.O. 14 DE FEBRERO DE 2018.
+[N. DE E. TRANSITORIOS DEL DECRETO NO. 427 POR EL QUE "SE REFORMA EL ARTÍCULO 45 Y SE DEROGAN LOS ARTÍCULOS 37, 38 Y 39 DE LA LEY DE RESPONSABILIDADES Y REGISTRO PATRIMONIAL DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE MICHOACÁN Y SUS MUNICIPIOS".]
+PRIMERO. Notifíquese al Titular del Poder Ejecutivo del Estado para su conocimiento y publicación respectiva en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. El presente Decreto entrará en vigor una vez que haya entrado en vigor el Decreto Legislativo 425, por el que se reforman, derogan y adicionan diversas disposiciones de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, de conformidad con lo previsto por el artículo 164 de la Constitución Estatal.
