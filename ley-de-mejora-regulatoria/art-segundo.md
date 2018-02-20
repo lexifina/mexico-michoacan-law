@@ -1,0 +1,1 @@
+Artículo Segundo. Una vez que entre en vigor el presente Decreto, se deroga el Capítulo Décimo Segundo, artículos 138, 139, 140, 141 y 142, del Código de Justicia Administrativa del Estado de Michoacán de Ocampo.

@@ -1,0 +1,6 @@
+Artículo Quinto. En los noventa días a la entrada en vigor del presente decreto, por esta única ocasión, los funcionarios que integran el Consejo Estatal de Mejora Regulatoria, convocarán dentro de treinta días para la elección de los consejeros ciudadanos que señala esta Ley.
+El Titular del Poder Ejecutivo del Estado, dispondrá se publique y observe.
+DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de Ocampo, a los 29 veintinueve días del mes de Noviembre de 2017 dos mil diecisiete.
+ATENTAMENTE.- «SUFRAGIO EFECTIVO. NO REELECCIÓN».- PRESIDENTE DE LA MESA DIRECTIVA.- DIP. MIGUEL ÁNGEL VILLEGAS SOTO.- PRIMERA SECRETARIA.- DIP. JEOVANA MARIELA ALCÁNTAR BACA.- SEGUNDA SECRETARIA.- DIP. YARABÍ ÁVILA GONZÁLEZ.- TERCERA SECRETARIA.- DIP. ROSALÍA MIRANDA ARÉVALO. (Firmados).
+En cumplimiento a lo dispuesto por el artículo 60 fracción I y 65 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, para su debida publicación y observancia, promulgo el presente Decreto en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 26 veintiséis días del mes de enero de 2018 dos mil dieciocho.
+SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR DEL ESTADO.- ING. SILVANO AUREOLES CONEJO.- EL SECRETARIO DE GOBIERNO.- LIC. ADRIÁN LÓPEZ SOLÍS.- (Firmados).
