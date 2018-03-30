@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Los procedimientos de contratación que se encuentren en trámite a la fecha de entrada en vigencia del presente Decreto, continuarán tramitándose hasta su conclusión conforme a las disposiciones de la Ley Patrimonial del Estado de Aguascalientes.

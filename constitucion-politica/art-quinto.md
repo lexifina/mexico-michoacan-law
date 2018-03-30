@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los procedimientos de conciliación, inconformidad y de sanción que se encuentren en trámite o pendientes de resolución a la fecha de entrada en vigencia del presente Decreto, deberán sustanciarse y concluirse de conformidad con las disposiciones aplicables al momento de haberse iniciado tales procedimientos.

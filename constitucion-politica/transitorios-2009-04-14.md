@@ -1,4 +1,0 @@
-P.O. 14 DE ABRIL DE 2009.
-ARTÍCULO PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, para su conocimiento general y efectos legales procedentes.
-ARTÍCULO SEGUNDO.- Remítase a los ayuntamientos del Estado, el Proyecto de Decreto, para que, en los términos del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, después de recibido el Proyecto de Decreto, envíen al Congreso del Estado de Michoacán de Ocampo el resultado de su votación.
-ARTÍCULO TERCERO.- Las comisiones de Gobernación y Puntos Constitucionales del Congreso del Estado contarán con un término de ciento ochenta días, a partir de la entrada en vigor del presente Decreto, para presentar ante el Pleno la Iniciativa con carácter de Dictamen de la Ley Reglamentaria en materia de pensiones previstas en la fracción XVII bis.

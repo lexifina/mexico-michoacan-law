@@ -1,6 +1,0 @@
-P.O. 6 DE AGOSTO DE 2010.
-ARTÍCULO PRIMERO. Publíquese el presente Decreto en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, para su conocimiento general y efectos legales procedentes.
-ARTÍCULO SEGUNDO. Remítase a los ayuntamientos del Estado, el Decreto, para que, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, después de recibido, envíen al Congreso del Estado de Michoacán de Ocampo, el resultado de su votación.
-ARTÍCULO TERCERO. Las obligaciones derivadas del presente Decreto, serán cumplidas de manera gradual progresiva, inicialmente la gratuidad implicará el pago de inscripción en las instituciones públicas de media superior y superior hasta el grado de licenciatura, otros servicios como exámenes, cursos, certificados, credenciales, cartas de pasantía, titulación y constancias, se otorgarán de acuerdo a la disponibilidad presupuestal del Estado.
-ARTÍCULO CUARTO. Se derogan todas aquellas disposiciones legales y administrativas en lo que se opongan al presente Decreto.
-ARTÍCULO QUINTO. Dese cuenta del presente Decreto, al Titular del Poder Ejecutivo del Estado de Michoacán de Ocampo. Para los efectos legales correspondientes.

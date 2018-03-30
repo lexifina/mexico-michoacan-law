@@ -1,4 +1,0 @@
-P.O. 22 DE JULIO DE 2011.
-ARTÍCULO PRIMERO. Remítase a los ayuntamientos del Estado, la Minuta proyecto de Decreto, para que, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, después de recibida, envíen al Congreso del Estado de Michoacán de Ocampo, el resultado de su votación.
-ARTÍCULO SEGUNDO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional de Michoacán de Ocampo, con excepción de lo dispuesto en el artículo transitorio siguiente.
-ARTÍCULO TERCERO. El nuevo sistema de reinserción social previsto en el párrafo segundo del artículo 18 de la Constitución Política de los Estados Unidos Mexicanos, entrará en vigor cuando lo establezca la legislación secundaria correspondiente, sin que pueda exceder el plazo de tres años, contados a partir del día siguiente de la publicación de este Decreto.

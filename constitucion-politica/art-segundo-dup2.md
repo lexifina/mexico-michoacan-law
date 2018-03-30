@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley Patrimonial del Estado de Aguascalientes, publicada en Sección Primera del Periódico Oficial del Estado de Aguascalientes, el lunes 25 de septiembre de 2000, así como sus reformas.
