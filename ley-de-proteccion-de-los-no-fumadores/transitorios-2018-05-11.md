@@ -1,0 +1,5 @@
+P.O. 11 DE MAYO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 554.- SE REFORMAN LAS FRACCIONES V Y VI DEL ARTÍCULO 2, LOS ARTÍCULOS 3, 4 Y 5, LAS FRACCIONES IV Y V DEL ARTÍCULO 6, LA FRACCIÓN VI DEL ARTÍCULO 7, LA FRACCIÓN I DEL ARTÍCULO 12, LOS ARTÍCULOS 14, 15, 16, 19, 23, 24, 36 Y 41; SE ADICIONA LA FRACCIÓN VI AL ARTÍCULO 6; Y SE DEROGA LA FRACCIÓN VII DEL ARTÍCULO 8, LA FRACCIÓN IV DEL ARTÍCULO 20 Y LOS ARTÍCULOS 21, 25, 26, 27, 28, 29, 30, 31 Y 32 DE LA LEY DE PROTECCIÓN DE LOS NO FUMADORES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. La Secretaría de Salud, actualizará en un término de cuarenta días el Reglamento de la Ley de Protección de los No Fumadores del Estado de Michoacán de Ocampo.
+TERCERO. Notifíquese del presente Decreto, al Titular del Poder Ejecutivo del Estado, para su conocimiento y efectos conducentes.
