@@ -1,6 +1,3 @@
-[N. DE E. DE CONFORMIDAD CON EL SEGUNDO TRANSITORIO DEL DECRETO NÚMERO 171, PUBLICADO EN EL P.O. DE 22 DE AGOSTO DE 2016, EL PRESENTE ARTÍCULO QUEDARÁ DEROGADO AL MOMENTO DE LA EXPEDICIÓN DE LOS TIPOS PENALES EXPEDIDOS POR EL CONGRESO DE LA UNIÓN EN LEYES GENERALES, ATENDIENDO LA ATRIBUCIÓN SEÑALADA EN EL ARTÍCULO 73 FRACCIÓN XXI INCISO A) Y 124 DE LA CONSTITUCIÓN POLÍTICA DE LOS ESTADOS UNIDOS MEXICANOS, Y SUS TRANSITORIOS.]
-(ADICIONADO, P.O. 22 DE AGOSTO DE 2016)
-Artículo 254 ter. Comete el delito de tortura y otros tratos o penas crueles, inhumanas o degradantes, el servidor público que con el fin de obtener información o una confesión, con fines de investigación criminal, como medio intimidatorio, como castigo personal, como medio de coacción, como medida preventiva y se le impondrá una pena de diez a veinte años de prisión y de quinientos a mil días multa a quien:
-I. Cause dolor o sufrimiento físico o psíquico a una persona;
-II. Cometa una conducta que sea tendente o capaz de disminuir o anular la personalidad de la víctima o su capacidad física o psicológica, aunque no le cause dolor o sufrimiento; o,
-III. Realice procedimientos médicos o científicos en una persona sin su consentimiento o sin el consentimiento de quien legalmente pudiera otorgarlo, salvo el caso de emergencia con el fin de salvaguardar su vida o integridad corporal.
+(REFORMADO, P.O. 11 DE JUNIO DE 2018)
+Artículo 254 ter. Tortura
+En los tipos penales, las sanciones y competencia de los tribunales locales correspondientes a la tortura y otros tratos o penas crueles, inhumanos o degradantes se estará a lo dispuesto por la legislación general expedida por el Congreso de la Unión en la materia.

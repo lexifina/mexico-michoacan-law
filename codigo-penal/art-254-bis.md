@@ -2,7 +2,7 @@
 CAPÍTULO XIV
 ENRIQUECIMIENTO ILÍCITO
 (ADICIONADO [N. DE E. REFORMADO], P.O. 18 DE JULIO DE 2017)
-Artículo 254 bis. Enriquecimiento Ilícito.
+Artículo 254 bis. Enriquecimiento Ilícito
 Se sancionará a quien con motivo de su empleo, cargo o comisión en el servicio público, haya incurrido en enriquecimiento ilícito. Existe enriquecimiento ilícito cuando el servidor público no pudiere acreditar el legítimo aumento de su patrimonio o la legítima procedencia de los bienes a su nombre o de aquellos respecto de los cuales se conduzca como dueño.
 Para efectos del párrafo anterior, se computarán entre los bienes que adquieran los servidores públicos o con respecto de los cuales se conduzcan como dueños, los que reciban o de los que dispongan su cónyuge y sus dependientes económicos directos, salvo que el servidor público acredite que éstos los obtuvieron por sí mismos.
 No será enriquecimiento ilícito en caso de que el aumento del patrimonio sea producto de una conducta que encuadre en otra hipótesis del presente Título. En este caso se aplicará la hipótesis y la sanción correspondiente, sin que dé lugar al concurso de delitos.
