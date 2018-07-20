@@ -1,0 +1,6 @@
+Artículo Cuarto. La relación laboral del personal bibliotecario que presten sus servicios en las bibliotecas públicas adscritos a la Secretaría de Cultura, contratados por el Estado y los Municipios, serán respetados de conformidad con lo dispuesto en las leyes y demás disposiciones aplicables.
+El Titular del Poder Ejecutivo del Estado, dispondrá se publique y observe.
+DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de Ocampo, a los 06 seis días del mes de Junio de 2018 dos mil dieciocho.-
+ATENTAMENTE.- «SUFRAGIO EFECTIVO. NO REELECCIÓN».- PRESIDENTE DE LA MESA DIRECTIVA.- DIP. ROBERTO CARLOS LÓPEZ GARCÍA.- PRIMER SECRETARIA.- DIP. DANIELA DÍAZ DURÁN.- SEGUNDO SECRETARIO.- DIP. EDUARDO GARCÍA CHAVIRA.- TERCER SECRETARIA.- DIP. MERCEDES ALEJANDRA CASTRO CALDERÓN. (Firmados).
+En cumplimiento a lo dispuesto por el artículo 60 fracción I y 65 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, para su debida publicación y observancia, promulgo el presente Decreto en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 04 cuatro días del mes de julio de 2018 dos mil dieciocho.
+SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR DEL ESTADO.- ING. SILVANO AUREOLES CONEJO.- EL SECRETARIO DE GOBIERNO.- ING. PASCUAL SIGALA PÁEZ.- (Firmados).
