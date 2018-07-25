@@ -1,0 +1,7 @@
+P.O. 24 DE JULIO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 584.- SE ADICIONAN DIVERSOS PÁRRAFOS AL ARTÍCULO 143 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. En caso de que el Presupuesto de Egresos del Estado se vea disminuido, ya sea en las participaciones federales o en algún otro concepto y que haga necesaria la atención prioritaria de esta soberanía para atender necesidades específicas, se hará un ejercicio ponderativo del monto equivalente proporcional al asignado al año inmediato anterior.
+SEGUNDO. En el entendido de que una de las variables para determinar el presupuesto que se asigna a la Benemérita y Centenaria Universidad Michoacana de San Nicolás de Hidalgo es la propia matrícula de alumnos de dicha institución, cuando ésta se vea reducida, se deberán realizar ajustes necesarios con base a la disminución de la matrícula.
+TERCERO. Remítase el presente Decreto a los Ayuntamientos del Estado, así como al Concejo Mayor de Cheran, para que emitan el resultado de su votación, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo.
+CUARTO. Notifíquese el presente Decreto al Titular del Poder Ejecutivo del Estado, para su conocimiento y publicación respectiva.
+QUINTO. El presente Decreto entrará en vigor al siguiente día de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
