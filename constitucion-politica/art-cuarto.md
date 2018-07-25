@@ -1,1 +1,0 @@
-ARTÍCULO CUARTO.- Los contratos celebrados antes de la entrada en vigencia del presente Decreto, continuarán regulándose hasta su terminación por las disposiciones de la Ley Patrimonial del Estado de Aguascalientes.

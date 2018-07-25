@@ -1,1 +1,0 @@
-ARTÍCULO SÉPTIMO.- Cuando otros ordenamientos jurídicos se refieran a la Ley Patrimonial del Estado de Aguascalientes en materia de adquisiciones, arrendamientos y servicios, se entenderán referidos a la citada Ley de Adquisiciones, Arrendamientos y Servicios del Estado de Aguascalientes y sus Municipios, contenida en este Decreto.
