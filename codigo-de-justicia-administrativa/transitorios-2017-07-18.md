@@ -5,4 +5,5 @@ SEGUNDO. Los asuntos turnados a la Justicia Especializada en combate a la corrup
 TERCERO. El Titular del Ejecutivo del Estado realizará los ajustes presupuestales con el fin de proveer de los recursos necesarios al Tribunal de Justicia Administrativa del Estado de Michoacán de Ocampo.
 En el proyecto de presupuesto de egresos para el Ejercicio Fiscal 2018, deberá destinar una partida presupuestal suficiente para cubrir los capítulos de servicios personales, materiales y suministros, así como de servicios generales necesarios para cumplir con sus funciones.
 CUARTO. El Congreso del Estado, a través de las Comisiones de Justicia y de Gobernación, emitirán convocatoria pública para el procedimiento de elección de los Magistrados Especializados en un término no mayor a 90 días naturales siguientes a la entrada en vigor del presente decreto.
-QUINTO. A partir de la entrada en vigor del presente Decreto el Tribunal de Justicia Administrativa tendrá un año para la implementación técnica del Juicio en Línea.
+(REFORMADO, P.O. 14 DE AGOSTO DE 2018)
+QUINTO. A la entrada en vigor del presente Decreto el Tribunal de Justicia Administrativa tendrá hasta el 18 de julio de 2019 para la implementación técnica del Juicio en Línea.
