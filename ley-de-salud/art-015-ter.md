@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 14 DE AGOSTO DE 2018)
+ARTÍCULO 15 TER. Las autoridades sanitarias y sus auxiliares, así como las instituciones de salud públicas o privadas adoptarán procedimientos de orientación y asesoría sobre el uso de los servicios de salud.
+Asimismo, establecerán mecanismos para que los usuarios presenten sus quejas, inconformidades y sugerencias respecto de la prestación de los servicios de salud y que exponga sobre la presunta falta de honorabilidad, la posible irregularidad de los actos y omisiones o negativa injustificada en la atención de los servidores públicos.
+Dichas reclamaciones deberán ser recibidas, atendidas, investigadas y resueltas, habiendo practicado todas las diligencias que correspondan, en forma oportuna, efectiva y directamente por las instancias que el Sistema y las autoridades sanitarias competentes tengan definidas para tal efecto, cuando la solución corresponda a su ámbito de competencia.
