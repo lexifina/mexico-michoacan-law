@@ -1,0 +1,8 @@
+P.O. 4 DE OCTUBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 657 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 144, 148, 149, 153, LAS FRACCIONES II Y VII DEL ARTÍCULO 159, 160, 162, 197, 199, 200, 201, 208, 209, 210, 211, 212, 229, 231, 240, 241, 242, 243, 244, 245, 246, 248, 256, 257, 258, 259, 261, 262, 265, 269, 270, 271, 272, 279, 291, 294, 296, 297, 297 J, 297 L, 297 P, 297 R, 299, 301, 315, 316, 317 Y 318; SE DEROGA LA FRACCIÓN IX DEL ARTÍCULO 159; Y, SE ADICIONAN LA FRACCIÓN XXXI BIS AL ARTÍCULO 3; EL CAPÍTULO QUINTO BIS, LOS ARTÍCULOS 163 A, 163 B, 163 C, 163 D, 163 E, 163 F, 163 G; TODOS DEL CÓDIGO DE JUSTICIA ADMINISTRATIVA DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. El Pleno del Tribunal acordará lo relativo a la transferencia de los recursos humanos, materiales y financieros actualmente destinados a las Salas para que sean transferidos a los juzgados administrativos para su debido funcionamiento.
+TERCERO. Los asuntos que se encuentren resueltos o en ejecución, a la entrada en vigor del presente Decreto, seguirán sustanciándose conforme a la legislación con la que se iniciaron.
+CUARTO. Los asuntos pendientes de resolverse a la entrada en vigor del presente Decreto, continuarán su tramitación de conformidad con las disposiciones legales vigentes.
+QUINTO. El Tribunal deberá nombrar Jueces Administrativos dentro de los sesenta días naturales siguientes a la entrada en vigor del presente Decreto.
+SEXTO. Se derogan las disposiciones legales y administrativas en lo que se opongan al presente Decreto.
