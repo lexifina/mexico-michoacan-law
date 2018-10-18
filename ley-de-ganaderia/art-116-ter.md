@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2018)
+ARTÍCULO 116 TER.- La Secretaría en coordinación con las autoridades municipales y las organizaciones ganaderas, implementarán un programa de control y vigilancia de la movilización de ganado a nivel estatal, en carreteras, caminos, puntos de revisión, en casetas, volantas, rastros y demás lugares en donde se críe, engorde, acopie, sacrifique o beneficie el ganado.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2018)
+ARTÍCULO 116 QUÁTER.- Se deberá revisar el ganado verificando que esté debidamente herrado y aretado con identificadores del SINIIGA, así como la documentación que acredite la propiedad y la autorización de movilización de origen; aquellos que carezcan de identificador o no cumplan con las normas de esta Ley, deberán ser retenidos hasta que se acredite la procedencia, la propiedad y el estado zoosanitario.

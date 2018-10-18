@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2018)
+ARTÍCULO 116 BIS.- El identificador del ganado y la clave de la unidad de producción pecuaria UPP, del sistema nacional de identificación del ganado SINIIGA, en las guías de tránsito, será la base metodológica del control de movilización del ganado, la rastreabilidad y trazabilidad, para la preservación y mejoramiento del estatus zoosanitario, prevención de epizootias, combatir el abigeato y la integración de un banco de datos que permita control estadístico, para la programación y evaluación del sector pecuario.
