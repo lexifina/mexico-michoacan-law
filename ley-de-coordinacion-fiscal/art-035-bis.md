@@ -1,7 +1,12 @@
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2018)
+SECCIÓN II
+DEL FONDO DE APORTACIONES ESTATALES
 (ADICIONADO, P.O. 28 DE DICIEMBRE DE 2017)
 ARTÍCULO 35 BIS. Con independencia de lo establecido en el Capítulo II de esta Ley, respecto de los recursos que los Municipios reciben del Fondo Participable y del Fondo de Gasolinas y Diesel, se establece una aportación estatal, como recurso que el Estado transfiere a los Municipios, condicionando su gasto a la consecución y cumplimiento de los objetivos que para dicha aportación establece el presente artículo, para un Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales, el cual se destinará a las inversiones públicas productivas de los Municipios.
 El Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales se constituirá con un monto equivalente al 5% de lo que corresponde al Estado en el Fondo General de Participaciones, una vez descontado el porcentaje que de dicho Fondo General se aporta al Fondo Participable, a que se refiere la fracción I, inciso a), del artículo 3° de la presente Ley.
-La distribución entre los municipios, del Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales a que se refiere este artículo, se realizará conforme a lo dispuesto por los artículos 5° fracciones I, II, II.I y II.II, 7° y 12 de la presente Ley.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 31 DE DICIEMBRE DE 2018)
+La distribución del Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales se realizará entre los municipios de conformidad con la fórmula siguiente:
+[N. DE E. VÉASE FÓRMULA EN EL P.O. DE 31 DE DICIEMBRE DE 2018, PÁGINA 4]
 La entrega del Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales, estará sujeto al resultado de la recaudación de los conceptos participables; a la determinación provisional mensual y a los ajustes cuatrimestrales y del ejercicio que efectúe la Federación para el Estado; a la cartera de proyectos que presenten respectivamente los Municipios para la aplicación y ejecución de dicho Fondo; y a los Lineamientos del Fondo que para tal efecto emita la Secretaría de Finanzas y Administración, en atención a las disposiciones jurídicas aplicables.
 CAPÍTULO IV
 De la Coordinación Fiscal y Colaboración Administrativa
