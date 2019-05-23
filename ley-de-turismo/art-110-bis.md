@@ -7,5 +7,5 @@ La Secretaría, promoverá la celebración de convenios de colaboración con las
 La Secretaría, en coordinación con las instancias gubernamentales correspondientes de los tres niveles de gobierno, así como con la iniciativa privada, fomentará la promoción del turismo religioso a través de programas y convenios.
 La Secretaría, formulará y aplicará una política estatal en materia de turismo religioso que considere los aspectos siguientes:
 I. La preservación de los recursos culturales religiosos;
-Il. Elaboración y aplicación de programas para la promoción y difusión de los sitios religiosos existentes en el Estado, así como de las festividades religiosas que se celebran en los municipios que integran al mismo; y,
+II. Elaboración y aplicación de programas para la promoción y difusión de los sitios religiosos existentes en el Estado, así como de las festividades religiosas que se celebran en los municipios que integran al mismo; y,
 III. Promover que se dé la adecuada atención a peregrinos y turistas que acudan a los sitios religiosos o alguna festividad religiosa.
