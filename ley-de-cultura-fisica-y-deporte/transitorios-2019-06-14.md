@@ -1,0 +1,5 @@
+P.O. 14 DE JUNIO DE 2019.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 135 POR EL QUE "SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 1° BIS; SE REFORMA LA FRACCIÓN XXXIII, SE ADICIONA LA FRACCIÓN XXXIII BIS Y UN SEGUNDO PÁRRAFO AL ARTÍCULO 22; Y SE ADICIONAN LOS PÁRRAFOS QUINTO Y SEXTO AL ARTÍCULO 81° DE LA LEY DE CULTURA FÍSICA Y DEPORTE DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. La Comisión Estatal de Cultura Física y Deporte elaborará el padrón de deportistas de alto rendimiento y deporte adaptado, en un plazo de 60 días naturales a partir de la publicación del presente Decreto.
+SEGUNDO. A partir del Presupuesto de Egresos del Gobierno del Estado de Michoacán de Ocampo del año 2020, el Titular del Poder Ejecutivo del Estado, deberá garantizar para la Comisión Estatal de Cultura Física y Deporte, los recursos necesarios para la operación y cumplimiento del presente Decreto.
+TERCERO. El presente Decreto entrará en vigencia al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.

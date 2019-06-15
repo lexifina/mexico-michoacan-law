@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 28 DE MAYO DE 2015)
 Artículo 1° Bis. El ejercicio y desarrollo del derecho a la cultura física y al deporte tienen como base los siguientes principios:
-I. Es un derecho para todos;
+(REFORMADA, P.O. 14 DE JUNIO DE 2019)
+I. Es un derecho para todos; su difusión práctica, debe hacerse sin distinción, exclusión o restricción, que pueda dar origen a la discriminación por origen étnico, sexo, edad, discapacidad, condición social y económica, condición de salud, lengua, opiniones, preferencia sexual, estado civil, ideología o creencia religiosa;
 II. Constituye una parte esencial de la educación;
 III. Es un estímulo para el desarrollo del autocuidado físico, intelectual y social de todos, además de ser un factor de cuidado de la salud y autorrealización;
 IV. Los programas y acciones deben responder a las necesidades individuales y sociales, existiendo una responsabilidad pública en el fomento cualitativo y cuantitativo;
