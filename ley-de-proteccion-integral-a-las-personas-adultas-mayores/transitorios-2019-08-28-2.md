@@ -1,0 +1,3 @@
+P.O. 28 DE AGOSTO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO LEGISLATIVO NÚMERO 157.- ARTÍCULO ÚNICO.- SE ADICIONA UN PÁRRAFO A LA FRACCIÓN VIII; Y SE REFORMAN LAS FRACCIONES XX, XXI Y XXII DEL ARTÍCULO 9 DE LA LEY DE PROTECCIÓN INTEGRAL A LAS PERSONAS ADULTAS MAYORES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
