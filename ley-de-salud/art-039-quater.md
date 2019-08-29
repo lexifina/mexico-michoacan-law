@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE AGOSTO DE 2019)
+ARTÍCULO 39 QUATER. La Secretaría en coordinación con el Consejo Estatal para la Prevención y el Tratamiento del Cáncer en la Infancia y la Adolescencia, diseñará e implementará de forma permanente, en coordinación con las autoridades estatales y municipales, las acciones y programas necesarios para la prevención, diagnóstico y atención del cáncer infantil, de manera prioritaria para aquellos menores que no cuenten con algún sistema, seguro o servicio de atención a la salud, dichas acciones y programas deberán ser gratuitos.
