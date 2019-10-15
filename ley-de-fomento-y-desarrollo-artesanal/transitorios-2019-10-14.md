@@ -1,0 +1,3 @@
+P.O. 14 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 171 POR EL QUE "SE REFORMA LA FRACCIÓN II Y SE ADICIONA UNA FRACCIÓN III, RECORRIÉNDOSE EN SU ORDEN LA SUBSECUENTE DEL ARTÍCULO 10 DE LA LEY DE FOMENTO Y DESARROLLO ARTESANAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
