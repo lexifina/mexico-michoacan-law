@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2019)
+ARTÍCULO 30 BIS. El plazo para presentar la solicitud de Plebiscito para los ciudadanos será de sesenta días hábiles, mientras que, para el Gobernador y los Gobiernos Municipales, será de treinta días hábiles, en ambos casos después de un acto o decisión del Gobernador o de los Gobiernos Municipales que se considere trascendental para la vida pública y el interés social.

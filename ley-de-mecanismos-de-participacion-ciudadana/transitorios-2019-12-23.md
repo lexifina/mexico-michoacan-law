@@ -1,0 +1,5 @@
+P.O. 23 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 206 POR EL QUE "SE REFORMAN EL PÁRRAFO SEGUNDO DEL ARTÍCULO 13; EL ARTÍCULO 16; EL ARTÍCULO 23; LA FRACCIÓN VI DEL ARTÍCULO 24; LA FRACCIÓN IV DEL ARTÍCULO 26; LAS FRACCIONES I Y III DEL ARTÍCULO 28; LAS FRACCIONES II Y VIII DEL ARTÍCULO 31; LA FRACCIÓN II DEL ARTÍCULO 33; EL ARTÍCULO 35; LA FRACCIÓN I Y EL PÁRRAFO SEGUNDO DEL ARTÍCULO 36; Y SE ADICIONA UN ARTÍCULO 30 BIS; TODOS DE LA LEY DE MECANISMOS DE PARTICIPACIÓN CIUDADANA DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Notifíquese el presente Decreto al titular del Poder Ejecutivo del Estado para su conocimiento y publicación respectiva.
+ARTÍCULO TERCERO. Notifíquese el presente Decreto al Instituto Electoral del Estado de Michoacán, el cual tendrá un plazo máximo de 90 días para reformar el Reglamento de Mecanismos de Participación Ciudadana del Instituto Electoral del Estado de Michoacán, conforme al mismo.
