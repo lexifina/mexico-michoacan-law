@@ -1,7 +1,0 @@
-(ADICIONADO, P.O. 23 DE JULIO DE 2018)
-ARTÍCULO 69 TER. El Pleno realizará la evaluación de los aspirantes e integrará y enviará al Congreso la propuesta mediante el procedimiento siguiente:
-I. Publicará convocatoria abierta en el Periódico Oficial, en el portal de internet y en un diario de circulación estatal que contendrá lugar, fecha, plazos, términos y requisitos para el proceso de selección;
-II. Los nombres de los aspirantes registrados serán publicados en el portal de internet y en un diario de circulación estatal, a efecto de que cualquier persona, por el término de tres días hábiles, de manera respetuosa, formule y haga llegar al Pleno, observaciones sobre los participantes, acompañando las pruebas que acrediten su dicho;
-III. Los aspirantes deberán someterse a evaluación de eficiencia y competencia, que realizará el Pleno, la cual consistirá en exámenes, escritos u orales sobre los aspectos relacionados con la materia del cargo a que aspira, considerando problemas y normativa;
-IV. El Pleno garantizará que quienes califiquen el examen, no conozcan la identidad del aspirante evaluado; y,
-V. El Pleno remitirá al Congreso la lista acompañada del expediente debidamente foliado y pormenorizado de cada aspirante evaluado, en el que se incluirá la documentación que acredita el cumplimiento de los requisitos constitucionales, el examen practicado y su resultado, para que el Congreso designe de entre los cinco mejor evaluados.
