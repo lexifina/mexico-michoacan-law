@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 11 DE JUNIO DE 2018)
-Artículo 198 bis. Se le impondrá de seis meses a siete años de prisión al que coaccione, hostigue, o exija material de contenido erótico sexual como alguna imagen, audio o video de la víctima bajo la amenaza de difundir, revelar, publicar, compartir, entregar, transmitir, exhibir o ceder material de la misma naturaleza que previamente la víctima le haya compartido para uso privado o Intimo a otra persona, afectando la confianza, la tranquilidad, el desarrollo personal y el honor de la víctima.
+Artículo 198 bis. (DEROGADO, P.O. 13 DE ENERO DE 2020)
