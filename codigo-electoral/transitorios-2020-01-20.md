@@ -1,0 +1,7 @@
+P.O. 20 DE ENERO DE 2020.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 193 POR EL QUE "SE REFORMAN LAS FRACCIONES XI, XII Y XIII DEL ARTÍCULO 3, LOS ARTÍCULOS 4 Y 71; Y SE ADICIONA LA FRACCIÓN XIV AL ARTÍCULO 3; Y UN PÁRRAFO SEGUNDO AL INCISO M) DEL ARTÍCULO 230 DEL CÓDIGO ELECTORAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. Remítase el presente Decreto a los ayuntamientos del Estado, así como al Concejo Mayor de Cherán, para que emita el resultado de su votación, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+TERCERO. El Congreso del Estado deberá, en un plazo improrrogable de un año a partir de la entrada en vigor del presente Decreto, realizar las adecuaciones normativas correspondientes a efecto de observar el principio de paridad de género establecido en esta Constitución.
+CUARTO. La observancia del principio de paridad de género a que se refiere el presente Decreto, será aplicable a quienes tomen posesión de su cargo, a partir del proceso electoral local siguiente a la entrada en vigor del presente Decreto, según corresponda.
+Por lo que hace a las autoridades que no se renuevan mediante procesos electorales, su integración y designación habrá de realizarse de manera progresiva y escalonada a partir de las nuevas designaciones y nombramientos que correspondan, de conformidad con la ley.
