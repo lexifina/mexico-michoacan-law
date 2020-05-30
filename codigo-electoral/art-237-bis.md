@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2020)
+ARTÍCULO 237 BIS. En los casos en que los denunciados sean órganos del Estado, notarios públicos, extranjeros, ministros de culto, asociaciones vinculadas a iglesias o agrupaciones de cualquier religión o secta o se presuma la comisión de infracciones a la normativa electoral cometidas por dichos sujetos, la Secretaría Ejecutiva deberá integrar el expediente respectivo.
+Si de los hechos investigados se advierte una posible violación a disposiciones legales que no se encuentren relacionadas con la materia electoral, la Secretaría Ejecutiva deberá hacerlo del conocimiento a las autoridades competentes o, en su caso, se ordenará una vista a través de la resolución respectiva que apruebe el Consejo General.
+Cuando se considere necesario que otras autoridades tengan conocimiento de las resoluciones aprobadas por el Consejo General, por su relación con sus efectos, se les remitirá copia certificada de ésta.

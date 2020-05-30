@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2020)
+ARTICULO 170 BIS. Los gastos que realicen los partidos políticos, las coaliciones, las candidaturas comunes y sus candidatos, en la propaganda electoral y las actividades de campaña, no deberán de rebasar los topes que para cada elección acuerde el Consejo General.
+El Consejo General determinará, dentro de los cinco días siguientes al inicio del proceso electoral, los topes de gastos para cada una de las campañas considerando, el tope autorizado para la elección anterior de que se trate, el cual podrá incrementar de acuerdo al factor de actualización de la UMA.
