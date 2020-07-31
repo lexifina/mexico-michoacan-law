@@ -1,0 +1,5 @@
+P.O. 28 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 339.- SE REFORMA EL SEGUNDO PÁRRAFO DEL ARTÍCULO 35 BIS DE LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ARTÍCULO PRIMERO. El presente Decreto entrarai (sic) en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Se exhorta al Titular de la Secretaría de Finanzas y Administración del Gobierno del Estado de Michoacán de Ocampo, para que en las reglas de operación y demás disposiciones relativas al Fondo de Aportaciones Estatales para la Infraestructura de los Servicios Públicos Municipales para el Ejercicio Fiscal del año 2021, se realicen las adecuaciones necesarias para que la presente reforma transite de manera adecuada a partir de ese año.
+ARTÍCULO TERCERO. Se exhorta a los Ayuntamientos del Estado, para que durante el ejercicio fiscal 2020 consideren proyectos que vayan encaminados a la recuperación, conservación y mejoramiento del medio-ambiente, independientemente si son sujetos de la presente reforma.
