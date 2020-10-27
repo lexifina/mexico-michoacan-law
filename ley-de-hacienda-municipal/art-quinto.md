@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Se abroga la Ley de Hacienda Municipal del Estado de Michoacán de Ocampo, de fecha 29 veintinueve de diciembre de 1983 mil novecientos ochenta y tres, publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, el día 31 del mes y año antes citados, así como las demás disposiciones que se opongan a la presente Ley.

@@ -1,1 +1,2 @@
-ARTÍCULO SEGUNDO. Se abroga la Ley de Hacienda Municipal del Estado de Michoacán de Ocampo, de fecha 29 veintinueve de diciembre de 1983 mil novecientos ochenta y tres, publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, el día 31 del mes y año antes citados, así como las demás disposiciones que se opongan a la presente Ley.
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2020)
+ARTÍCULO SEGUNDO. Lo establecido en el artículo anterior también aplica para las juntas de operación de sistemas de agua potable del Estado de Michoacán.

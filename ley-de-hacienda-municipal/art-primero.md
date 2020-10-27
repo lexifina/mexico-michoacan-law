@@ -1,1 +1,5 @@
-ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el 1° de enero del año 2015, previa su publicación, en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2020)
+ARTÍCULO PRIMERO. Debido a la actual pandemia de COVID-19, los Ayuntamientos del Estado de Michoacán y el Concejo Mayor de Cherán, si están en condiciones de hacerlo, podrán celebrar el siguiente Acuerdo:
+I. Establecer, para el usuario que lo solicite, el no cobro del agua potable mientras dure la contingencia y, en su caso, la emergencia sanitaria a causa del COVID-19. El monto que el usuario acumule durante este periodo será prorrateado durante los siguientes cuatro meses posteriores al término de la contingencia y/o emergencia sanitaria, o en su defecto, durante diciembre de 2020, lo que ocurra primero. El usuario que solicite este beneficio, no pagará ni multas ni recargos durante este periodo;
+II. Establecer que no se cortará ni reducirá el suministro de agua potable durante el tiempo que dure la contingencia y/ o emergencia sanitaria; y,
+III. Si hay condiciones financieras, emitir descuentos al consumo de agua potable a adultos mayores, sector popular y sector vulnerable, siempre y cuando la superficie del domicilio no rebase los 120m2.

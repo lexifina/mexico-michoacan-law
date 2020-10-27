@@ -1,0 +1,4 @@
+P.O. 26 DE OCTUBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 356.- ARTÍCULO PRIMERO. SE REFORMA EL ARTÍCULO 56 PÁRRAFO PRIMERO, SE ADICIONA UN ÚLTIMO PÁRRAFO Y SE DEROGA LA FRACCIÓN III DEL PROPIO ARTÍCULO 56, DEL CÓDIGO FISCAL DEL ESTADO DE MICHOACÁN DE OACAMPO.- ARTÍCULO SEGUNDO. SE REFORMA EL ARTÍCULO 58 PÁRRAFO PRIMERO Y SE DEROGA LA FRACCIÓN III DEL PROPIO ARTÍCULO 58, DEL CÓDIGO FISCAL MUNICIPAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. La Secretaría de Finanzas y Administración del Gobierno del Estado y las autoridades fiscales municipales que correspondan; deberán realizar las adecuaciones necesarias en sus sistemas de recaudación de las contribuciones para efectos de cumplimiento del presente Decreto.
