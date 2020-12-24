@@ -1,0 +1,5 @@
+P.O. 23 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 369.- SE REFORMAN LOS ARTÍCULOS 20, 21, 22 Y 25 DE LA LEY DE FOMENTO AL PRIMER EMPLEO Y A LA PRIMERA EMPRESA PARA EL ESTADO DE MICHOACÁN DE OCAMPO Y SUS MUNICIPIOS".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. El titular del Instituto de la Juventud de Michoacán por única ocasión, tendrá un plazo no mayor a treinta días hábiles a partir de la publicación del presente Decreto, para enviar al Congreso del Estado, el Padrón Único de Beneficiarios de los Programas del Primer Empleo y la Primera Empresa.
+TERCERO. El titular de la Secretaría de Finanzas y Administración por única ocasión, tendrá un plazo no mayor a treinta días hábiles a partir de la publicación del presente Decreto, para enviar al Congreso del Estado, la situación que guarda el Fondo establecido en la Ley de Fomento al Primer Empleo y a la Primera Empresa para el Estado de Michoacán de Ocampo y sus Municipios.
