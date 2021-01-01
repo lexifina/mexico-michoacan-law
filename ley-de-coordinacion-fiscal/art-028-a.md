@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
-ARTÍCULO 28-A. El Fondo de Aportaciones Federales para el Fortalecimiento de los Municipios y de las Demarcaciones Territoriales del Distrito federal, se enterará mensualmente a los Municipios durante los doce meses del año por partes iguales; a través de la Secretaría de Finanzas y Administración, de manera ágil y directa, sin más limitaciones ni restricciones.

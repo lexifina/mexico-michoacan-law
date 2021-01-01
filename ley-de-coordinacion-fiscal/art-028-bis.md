@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2020)
+ARTÍCULO 28 BIS. El Fondo de Aportaciones Federales para el Fortalecimiento de los Municipios y de las Demarcaciones Territoriales del Distrito federal, se enterará mensualmente a los Municipios durante los doce meses del año por partes iguales, de manera ágil, directa, sin más limitaciones ni restricciones, de conformidad con el calendario de pago que para tal efecto proporcione la Secretaría de Finanzas y Administración.

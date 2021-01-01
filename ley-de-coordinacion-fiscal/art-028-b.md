@@ -1,2 +1,0 @@
-(REFORMADO, P.O. 5 DE AGOSTO DE 2016)
-ARTÍCULO 28-B. Las Aportaciones con cargo al Fondo de Aportaciones para el Fortalecimiento de los Municipios y de las Demarcaciones Territoriales del Distrito Federal, podrán afectarse como garantía del cumplimiento de sus obligaciones de pago de derechos y aprovechamientos por concepto de agua y descargas de aguas residuales, previo Acuerdo del Ayuntamiento y cumpliendo en sus términos lo dispuesto por el artículo 51 de la Ley de Coordinación Fiscal.

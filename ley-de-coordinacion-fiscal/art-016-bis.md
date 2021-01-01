@@ -1,0 +1,3 @@
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2020)
+ARTÍCULO 16 BIS. Para dar cumplimiento a lo dispuesto por el artículo 9° de la Ley de Planeación Hacendaria, Presupuesto, Gasto Público y Contabilidad Gubernamental del Estado de Michoacán de Ocampo, la Secretaría de Finanzas y Administración determinará la estimación de Participaciones y Fondos de Aportaciones Federales y Estatales para los Municipios del Estado, correspondientes al próximo ejercicio fiscal respecto del vigente, utilizando los mismos coeficientes vigentes en el ejercicio en que se lleva cabo dicha estimación.
+Los cuales, por ser estimados, podrán presentar variaciones con respecto a los utilizados para determinar la información que señala el artículo 17 de esta Ley.
