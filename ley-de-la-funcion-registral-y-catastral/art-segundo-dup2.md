@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Seguirán vigentes las Disposiciones previstas en la Ley de Catastro del Estado de Michoacán de Ocampo y la Ley del Registro Público de la Propiedad del Estado de Michoacán, en tanto entra en vigor la Ley de la Función Registral y Catastral del Estado de Michoacán de Ocampo.

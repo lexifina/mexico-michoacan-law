@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor, dentro de los 180 días hábiles siguientes a su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. La Secretaría de Finanzas y Administración del Gobierno del Estado deberá hacer las previsiones presupuestales necesarias para la operación del presente Decreto y establecerá una unidad programática presupuestal específica en el Presupuesto de Egresos del Estado, para el Ejercicio Fiscal 2021.

@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Los recursos tecnológicos, financieros y materiales con los que cuenta la Dirección de Catastro adscrita a la Secretaría de Finanzas y Administración, y la Dirección de Registro Público de la Propiedad, adscrita a la Secretaría de Gobierno, se transferirán al Instituto, quien a partir del ejercicio fiscal 2021, contará con su propio presupuesto.
