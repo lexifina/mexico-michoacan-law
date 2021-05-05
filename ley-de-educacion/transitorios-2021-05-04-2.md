@@ -1,0 +1,4 @@
+P.O. 4 DE MAYO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 518.- SE MODIFICAN LAS FRACCIONES XIV, XV Y SE ADICIONA LA FRACCIÓN XVI DEL ARTÍCULO 29; SE MODIFICA LA FRACCIÓN X DEL ARTÍCULO 53 Y SE MODIFICA LA FRACCIÓN VIII DEL ARTÍCULO 112 TODOS DE LA LEY DE EDUCACIÓN DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, por lo que se manda se publique y observe para su conocimiento general y efectos legales procedentes.
+SEGUNDO. La obligación que refiere el artículo 29 fracción XVI, será de forma gradual y progresiva de acuerdo con la suficiencia presupuestal, priorizando de manera equitativa en las comunidades indígenas y las comunidades de alta y muy alta marginación, debiendo tener la cobertura total antes del año 2026.
