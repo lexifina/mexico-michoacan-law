@@ -1,0 +1,6 @@
+Artículo Quinto. El Reglamento Interno del Consejo de Trasplantes del Estado de Michoacán, regulado en la Ley de Trasplantes y Donación de Órganos, Tejidos y Células en el Estado de Michoacán de Ocampo, deberá ser reformado y adecuado, a lo establecido en el artículo primero del presente Decreto, a los 120 días de su aprobación.
+El Titular del Poder Ejecutivo del Estado, dispondrá se publique y observe.
+DADO EN EL PALACIO DEL PODER LEGISLATIVO, en Morelia, Michoacán de Ocampo, a los 21 veintiún días del mes de abril de 2021 dos mil veintiuno.
+ATENTAMENTE.- «SUFRAGIO EFECTIVO. NO REELECCIÓN».- PRESIDENTA DE LA MESA DIRECTIVA.- DIP. YARABÍ ÁVILA GONZÁLEZ.- PRIMER SECRETARIO.- DIP. ÁNGEL CUSTODIO VIRRUETA GARCÍA.- SEGUNDO SECRETARIO.- DIP. ARTURO HERNÁNDEZ VÁZQUEZ.- TERCER SECRETARIA.- DIP. GIGLIOLA YANIRITZIRATZIN TORRES GARCÍA. (Firmados).
+En cumplimiento a lo dispuesto por el artículo 60 fracción I y 65 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo, para su debida publicación y observancia, promulgo el presente Decreto en la residencia del Poder Ejecutivo, en la ciudad de Morelia, Michoacán, a los 24 veinticuatro días del mes de mayo del año 2021 dos mil veintiuno.
+SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR DEL ESTADO.- ING. SILVANO AUREOLES CONEJO.- EL SECRETARIO DE GOBIERNO.- C. ARMANDO HURTADO ARÉVALO.- (Firmados)

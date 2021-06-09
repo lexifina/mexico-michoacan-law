@@ -1,0 +1,1 @@
+Artículo Tercero. El Registro Estatal regulado en la Ley de Trasplantes y Donación de Órganos, Tejidos y Células en el Estado de Michoacán de Ocampo y contemplado en el artículo primero del presente Decreto quedará conformado a los 120 días posteriores a la aprobación del presente Decreto.

@@ -1,0 +1,1 @@
+Artículo Cuarto. El Titular del Poder Ejecutivo del Estado deberá expedir el Reglamento de la Ley de Trasplantes y Donación de Órganos, Tejidos y Células en el Estado de Michoacán de Ocampo y contenido en el artículo primer o del presente Decreto, a los 120 días siguientes de su aprobación.
