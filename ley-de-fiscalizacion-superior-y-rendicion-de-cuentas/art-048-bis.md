@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 2 DE JULIO DE 2021)
+Artículo 48 Bis. Para los procesos de fiscalización, la Auditoría Superior podrá solicitar información y documentación, de manera física o por medios electrónicos o digitales, mediante el uso de firma electrónica, sello digital de tiempo y correo electrónico institucional, que serán obligatorios para las entidades fiscalizadas.
+La Auditoría Superior emitirá la normatividad secundaria aplicable a los procesos de fiscalización por medios electrónicos o digitales, así como la normatividad relativa a los protocolos de seguridad que para tal efecto se implementen. La información y documentación así obtenida, tendrá para todos los efectos legales, pleno valor probatorio.
