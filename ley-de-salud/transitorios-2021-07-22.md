@@ -1,0 +1,5 @@
+P.O. 22 DE JULIO DE 2021.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 549 POR EL QUE "SE ADICIONA LA FRACCIÓN XXXV RECORRIÉNDOSE EN SU ORDEN LAS SUBSECUENTES AL ARTÍCULO 2°, SE REFORMA LA FRACCIÓN XV Y SE ADICIONA UNA FRACCIÓN XVI RECORRIÉNDOSE EN SU ORDEN LA SUBSECUENTE DEL ARTÍCULO 14; Y, SE ADICIONA UN SEGUNDO PÁRRAFO ARTÍCULO 30 DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. La presente Reforma de Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. El Titular del Poder Ejecutivo tendrá un plazo de sesenta días naturales para las modificaciones al Reglamento de la presente Ley.
+TERCERO. La Secretaría de Salud en el Estado, deberá de garantizar la prestación del servicio de salud mental en los centros de salud locales de primer nivel en el Estado, lo cual deberá realizar de forma progresiva, debiendo contemplar el recurso necesario en la Ley de Ingresos y Presupuesto de Egresos para el ejercicio fiscal 2022 y los sucesivos ejercicios fiscales, para la infraestructura y personal necesario.
