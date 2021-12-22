@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 07 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 53 Y 59 DE LA LEY DE LOS TRABAJADORES AL SERVICIO DEL ESTADO DE MICHOACÁN DE OCAMPO Y DE SUS MUNICIPIOS".]
+PRIMERO. Para efectos de lograr lo dispuesto en el artículo 53, segundo párrafo, del presente Decreto, los sindicatos deben implementar de forma permanente, un programa de sensibilización de sus agremiados, para que a través de cursos, pláticas u otras diversas, se resalte la importancia de la participación activa de las mujeres en cargos directivos, buscando eliminar estereotipos que conduzcan a la permanencia de los hombres en los mismos, como condición natural.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
