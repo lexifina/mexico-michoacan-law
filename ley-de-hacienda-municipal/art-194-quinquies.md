@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2021)
+ARTÍCULO 194 Quinquies. Tendrán el carácter de Aprovechamientos, los ingresos que se obtengan por concepto de arrendamiento de sus bienes muebles o inmuebles, mismos que se determinarán por medio de contratos que previamente se celebren con los usufructuarios, con sujeción a las bases que establezcan previamente los Ayuntamientos respectivos, representados por su Presidente Municipal.

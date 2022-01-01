@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2021)
+ARTÍCULO 194 Sexies. El arrendamiento de piso, por la introducción de ganado a los rastros municipales, se cubrirá en la oficina correspondiente conforme a la cuota o tarifa que determinen las Leyes de Ingresos de los Municipios del Estado de Michoacán de Ocampo.
