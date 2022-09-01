@@ -1,0 +1,7 @@
+P.O. 31 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 194 POR EL QUE "SE REFORMA EL ARTÍCULO 254 INCISO E), Y SE ADICIONA EL CAPÍTULO TERCERO BIS «DEL PROCEDIMIENTO ESPECIAL SANCIONADOR EN MATERIA DE VIOLENCIA POLÍTICA CONTRA LA MUJER EN RAZÓN DE GÉNERO», CON LOS ARTÍCULOS 264 BIS, 264 TER, 264 QUATER, 264 QUINQUIES, 264 SEXIES, 264 SEPTIES, 264 OCTIES, 264 NONIES Y 264 DECIES, TODOS DEL CÓDIGO ELECTORAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Notifíquese al Titular del Poder Ejecutivo, al Instituto Electoral de Michoacán y al Tribunal Electoral del Estado de Michoacán, para conocimiento y efectos procedentes y cúmplase.
+ARTÍCULO TERCERO. Los procedimientos sancionadores que se hayan iniciado de forma previa al inicio de vigencia de este Decreto se seguirán conforme a la normativa con las que se iniciaron.
+ARTÍCULO CUARTO. El Instituto Electoral de Michoacán deberá adecuar su normativa interna en la materia en el plazo no mayor de sesenta días naturales a partir de la entrada en vigor del presente Decreto.
+ARTÍCULO QUINTO. Una vez entrado en vigor el presente Decreto, el Instituto deberá actualizar el Registro Estatal de Personas Sancionadas por Violencia Política contra las Mujeres en Razón de Género.
