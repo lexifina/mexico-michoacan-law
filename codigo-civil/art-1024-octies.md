@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2022)
+Artículo 1024 Octies. La acción contenida en la presente sección se hará durante la vigencia del contrato (sic) que se trate. En caso de que la autoridad judicial se encuentre impedida por acontecimiento extraordinario para recibir la demanda durante dicho plazo, se podrá presentar durante el mes inmediato siguiente al día en que se reinicien las actividades institucionales correspondientes.

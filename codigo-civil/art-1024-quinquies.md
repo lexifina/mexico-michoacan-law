@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2022)
+Artículo 1024 Quinquies. El juez podrá allegarse los medios de conocimiento necesarios, tales como el dictamen de peritos o cualesquiera otros elementos, que le permitan cumplir con lo dispuesto en el artículo anterior, tomando en cuenta los principios generales del derecho, la buena fe, la justicia, la mayor reciprocidad y la equidad de intereses.
+Además, por medio de auto judicialmente acreditado, el juez determinará la admisión de las pruebas que una o ambas partes ofrezcan. La parte que presente los medios de prueba deberá proveer de los elementos que sean necesarios para que el juzgador pueda determinar plenamente probados los hechos y se aprecie el valor de los registros y la información.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2022)
+Artículo 1024 Septies. La parte lesionada no gozará de los derechos de revisión y reducción de las prestaciones si en algún momento, anterior a la presentación de la demanda, se constituyó en mora, aunque al tiempo de ejercitar la acción se encuentre regularizada en el cumplimiento. Tampoco gozará de tales derechos si actuó con mala fe o dolo al momento del nacimiento de la obligación, o de que ésta se hizo exigible.
