@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2022)
+Artículo 69 Octies. Las acciones con fundamentos de la educación emocional que se instrumentarán estarán a cargo de docentes, profesionales o técnicos con formación específica y con capacitación docente, mismos que emplearán técnicas psicopedagógicas con enfoque en educación emocional en función de los contenidos que se aprueben. Mismos que tenderán a la formación y desarrollo de seres humanos aptos para convivir en sociedad como sujetos con capacidad afectiva, cognitiva, comunicativa y creativa.

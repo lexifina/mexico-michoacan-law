@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2022)
+Artículo 69 Quater. La educación emocional se impartirá en los niveles inicial y básico que comprende el sistema educativo. Las autoridades educativas y escolares en sus respectivos ámbitos de intervención y atribuciones correspondientes deberán:
+I. Conseguir un desarrollo integral del alumnado, potenciando no sólo aspectos cognitivos e intelectuales del individuo, sino también otros tan importantes como el desarrollo de la personalidad, las actitudes, los valores, la motivación y el esfuerzo;
+II. Diseñar y desarrollar políticas, planes y programas educativos específicos para educar las habilidades socio-emocionales;
+III. Garantizar la incorporación de la educación emocional en los diseños de currículum educativos, con definición de objetivos, asignación de contenidos, planificación de actividades, estrategias de intervención y programas experimentables y evaluables;
+IV. Promover el desarrollo de una actitud de esfuerzo, trabajo y responsabilidad en el estudio y de curiosidad e interés por el aprendizaje, fortaleciendo la confianza en las propias posibilidades de aprender;
+V. Formar personas para que sean capaces de desenvolverse de forma competente en la vida; y,
+VI. Educar para que las niñas y niños de hoy sean adultos independientes y seguros, capaces de gestionar sus propias vidas, con sus satisfacciones y dificultades. Para que al llegar a convertirse en adultos sean capaces de cooperar eficientemente y relacionarse de forma positiva con los demás para resolver diferentes problemas o emprender diferentes proyectos vitales, personales o profesionales.

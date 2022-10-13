@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2022)
+Artículo 69 Ter. Para los efectos del presente capítulo se entenderá por:
+I. Educación Emocional: el proceso educativo continuo y permanente que busca el desarrollo integral de la personalidad del individuo. Esto incluye el desarrollo de la inteligencia emocional y su aplicación en las situaciones de la vida. Por extensión esto implica fomentar valores morales, cívicos, actitudes positivas ante la vida, habilidades sociales, empatía, resiliencia, como factores de desarrollo de bienestar personal y social; y,
+II. Inteligencia Emocional: es la habilidad para percibir, generar y acceder a emociones que faciliten el pensamiento, para comprender el conocimiento emocional, para identificar y regular las emociones de manera efectiva permitiendo el crecimiento intelectual y emocional. Es a su vez, la capacidad de sentir, entender, controlar y modificar estados anímicos propios y ajenos.
