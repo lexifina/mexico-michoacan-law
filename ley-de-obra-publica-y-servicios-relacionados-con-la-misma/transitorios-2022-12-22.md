@@ -1,0 +1,3 @@
+P.O. 22 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 325 POR EL QUE "SE REFORMAN LAS FRACCIONES I Y II DEL ARTÍCULO 1°, Y SE ADICIONA EL ARTÍCULO 15 BIS, A LA LEY DE OBRA PÚBLICA Y SERVICIOS RELACIONADOS CON LA MISMA PARA EL ESTADO DE MICHOACÁN DE OCAMPO Y SUS MUNICIPIOS".]
+ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
