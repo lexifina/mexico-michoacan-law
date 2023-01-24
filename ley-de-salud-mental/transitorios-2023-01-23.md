@@ -1,0 +1,3 @@
+P.O. 23 DE ENERO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO LEGISLATIVO NÚMERO 301.- PRIMERO.- SE REFORMA LA FRACCIÓN XXIV DEL ARTÍCULO 4°; LAS FRACCIONES IV Y VI DEL ARTÍCULO 15; LA FRACCIÓN I DEL ARTÍCULO 37; EL ARTÍCULO 61; LA FRACCIÓN IV DEL ARTÍCULO 64; Y, EL ARTÍCULO 76 DE LA LEY DE SALUD MENTAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
