@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE MARZO DE 2023)
+Artículo 27 Sexies. Una vez iniciado el acogimiento familiar, la Procuraduría de Protección a través de su personal, conforme a la Ley de Adopción y Acogimiento Familiar del Estado de Michoacán de Ocampo, realizará visitas de supervisión a fin de verificar si la niña, niño o adolescente que tienen bajo su cuidado, seguridad y protección, cuenta con los elementos de carácter social, educativo y de salud.
+Si derivado de la supervisión se desprende que existe alguna vulneración o riesgo de vulneración de derechos de niñas, niños y adolescentes en acogimiento, el Consejo y la Procuraduría de Protección atenderán a lo dispuesto en la Ley de Adopción y Acogimiento Familiar del Estado de Michoacán de Ocampo.

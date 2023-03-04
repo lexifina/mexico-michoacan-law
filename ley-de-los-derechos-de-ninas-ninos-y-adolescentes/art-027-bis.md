@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE MARZO DE 2023)
+Artículo 27 Bis. El Estado reconoce que, el proceso de adopción y el acogimiento familiar, responden al interés superior de la niñez y adolescencia como consideración primordial y cómo formas supremas para restituir o garantizar el derecho de vivir en familia a niñas, niños o adolescentes que, por diversas razones, no pueden vivir con su familia de origen o extensa.
