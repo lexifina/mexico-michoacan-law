@@ -7,3 +7,5 @@ II. Cuando este se utilice como instrumento para la comisión de otro delito;
 III. Cuando se realice en despoblado;
 IV. Cuando en el vehículo se encuentren mujeres, menores, personas con discapacidad o adultos mayores; y,
 V. Cuando se cometa por dos o más personas.
+(ADICIONADO, P.O. 30 DE MARZO DE 2023)
+Se equipara al robo de vehículo de motor terrestre y se sancionará conforme al presente artículo a quien se apodere u obtenga la posesión o propiedad de un vehículo automotor, mediante la simulación del pago por la compra del mismo haciendo uso de medios electrónicos o tecnologías digitales.
