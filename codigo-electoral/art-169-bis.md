@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE JUNIO DE 2023)
+ARTÍCULO 169 BIS. Los partidos políticos, aspirantes, precandidatos, candidatos incluidos los independientes, las organizaciones y agrupaciones de esta índole que publiquen propaganda política o electoral por cualquier medio y aparezcan niñas, niños y adolescentes, deberán cumplir con los lineamientos para la protección de los derechos de niñas, niños y adolescentes en materia político-electoral y demás normativa aplicable.
