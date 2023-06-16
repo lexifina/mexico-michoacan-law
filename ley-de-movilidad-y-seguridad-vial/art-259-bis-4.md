@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE FEBRERO DE 2008)
+Artículo 259 Bis 4. Queda totalmente prohibido, en los establecimientos antes mencionados la venta o suministro de medicamentos, sustancias anabólicas, esteroideas y bebidas alcohólicas, también se prohíbe la realización a menores de doce años, de ejercicios, trabajos o toda actividad que implique sobrecargas, maquinas de fuerza o pesas, salvo autorización expresa de un profesional público.

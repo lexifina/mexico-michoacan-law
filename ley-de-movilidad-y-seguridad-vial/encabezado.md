@@ -1,8 +1,6 @@
-[N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 16 DE JUNIO DE 2023 EN EL P.O. DEL ESTADO DE MICHOACÁN DE OCAMPO, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.]
-LEY DE MOVILIDAD Y SEGURIDAD VIAL DEL ESTADO DE MICHOACÁN DE OCAMPO
-Ley publicada en la Novena Sección del Número 7 del Periódico Oficial del Estado de Michoacán, el viernes 2 de junio de 2023.
-ALFREDO RAMÍREZ BEDOLLA, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
-El H. Congreso del Estado, se ha servido dirigirme el siguiente:
-DECRETO
-EL CONGRESO DE MICHOACÁN DE OCAMPO DECRETA:
-NÚMERO 405
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
+LEY DE SALUD DEL ESTADO DE SINALOA
+Ley publicada en el Periódico Oficial del Estado de Sinaloa, el viernes 3 de septiembre de 2004.
+El H. Congreso del Estado Libre y Soberano de Sinaloa, representado por su Quincuagésima Séptima Legislatura, ha tenido a bien expedir el siguiente,
+DECRETO NÚMERO 624
+LEY DE SALUD DEL ESTADO DE SINALOA

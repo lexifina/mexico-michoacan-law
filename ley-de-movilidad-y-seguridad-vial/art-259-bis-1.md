@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 11 DE FEBRERO DE 2008)
+Artículo 259 Bis 1. Los gimnasios deben contar con elementos de primeros auxilios que serán establecidos por la reglamentación. Y deberán estar adheridos a un servicio de emergencias médicas y capacitar a sus profesionales en técnicas de reanimación cardiorrespiratoria y primeros auxilios.
+Todo gimnasio deberá exigir a sus usuarios un certificado médico extendido por un doctor que cuente con título y matrícula habilitada, mediante el cual, se reconozca la buena salud del usuario, y que tendrá vigencia de un año a partir de la fecha de su otorgamiento.
+En el certificado médico se deberá hacer constar el tipo de actividad física para el cual está habilitado el solicitante, según el criterio del profesional actuante y en virtud de los exámenes que se considere conveniente realizar.

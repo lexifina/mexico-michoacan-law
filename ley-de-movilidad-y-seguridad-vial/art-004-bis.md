@@ -1,0 +1,12 @@
+N. DE E. EN RELACIÓN CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NÚMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSÚLTESE EL TRANSITORIO SEGUNDO.
+(ADICIONADO, P.O. 29 DE AGOSTO DE 2011)
+Artículo 4 Bis. La Secretaría de Salud, en el marco del Sistema Nacional de Salud, y para ejecutar los programas nacionales de prevención y tratamiento de la farmacodependencia de conformidad con los convenios respectivos, realizará, entre otras, las siguientes acciones:
+I. Organizar, promover, operar, supervisar y evaluar la prestación de servicios y campañas permanentes de información y orientación al público para la prevención de daños a la salud provocados por el consumo de estupefacientes y psicotrópicos; así como la atención médica o tratamiento de las adicciones mediante la aplicación del Programa Nacional para la Prevención y Tratamiento de la Farmacodependencia, en términos del artículo 192 de la Ley General de Salud;
+II. Coordinar y promover con los sectores público, privado y social las acciones para prevenir la farmacodependencia;
+III. Crear centros especializados en tratamiento, atención y rehabilitación, con base en sistemas modernos de tratamiento y rehabilitación que se regirán en el respeto a la integridad y libre voluntad del farmacodependiente, con excepción de lo previsto en el segundo párrafo del artículo 193 Bis de la Ley General de Salud;
+IV. Crear y mantener actualizado un padrón de instituciones y organismos públicos y privados que realicen actividades de prevención, tratamiento, atención y reinserción social en materia de farmacodependencia;
+V. Crear indicadores y bases de datos que permitan identificar zonas, sectores y grupos de alto riesgo en materia de farmacodependencia;
+VI. Supervisar a las instituciones y organismos públicos y privados para que realicen actividades de prevención, tratamiento, atención y reinserción social en materia de farmacodependencia, apegándose al respecto de la integridad y libre decisión del farmacodependiente;
+VII. Construir indicadores públicos sobre los índices de farmacodependencia en el estado de Sinaloa; y,
+VIII. Fomentar la participación comunitaria y la coordinación con las autoridades federales y las instituciones públicas o privadas para la planeación, programación, ejecución y evaluación de los programas y acciones del proceso de superación de la farmacodependencia.
+Todos los programas y acciones para el combate a la farmacodependencia se regirán en el respeto a la integridad y a la libre voluntad del farmacodependiente.
