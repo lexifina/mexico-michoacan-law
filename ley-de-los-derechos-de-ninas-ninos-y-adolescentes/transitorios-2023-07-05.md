@@ -1,0 +1,5 @@
+P.O. 5 DE JULIO DE 2023.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 393 POR EL QUE "SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 14 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo. Se derogan todas las disposiciones que se opongan al presente Decreto.
+SEGUNDO. Las secretarías de Gobierno y de Salud del Gobierno del Estado de Michoacán, así como la Dirección del Registro Civil, al implementar las acciones necesarias para cumplir el presente Decreto, darán prioridad a las niñas y niños que por cualquier motivo corran riesgo de no ser registrados o de no obtener su respectiva acta de nacimiento.
+TERCERO. Notifíquese al Gobernador Constitucional del Estado de Michoacán de Ocampo, para que se sirva ordenar su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
