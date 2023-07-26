@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE JUNIO DE 2020)
-Artículo 133 A.- Son derechos de los jornaleros agrícolas los siguientes:
+(REFORMADA SU NÚMERACIÓN, P.O. 25 DE JULIO DE 2023)
+Artículo 133 Bis.- Son derechos de los jornaleros agrícolas los siguientes:
 (ADICIONADO, P.O. 30 DE OCTUBRE DE 2018)
 I. No ser discriminados o excluidos por su actividad, así como a no recibir malos tratos por parte de los productores agrícolas;
 (ADICIONADO, P.O. 30 DE OCTUBRE DE 2018)
