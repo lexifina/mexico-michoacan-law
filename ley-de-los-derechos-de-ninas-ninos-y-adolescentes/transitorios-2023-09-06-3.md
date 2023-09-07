@@ -1,0 +1,4 @@
+P.O. 6 DE SEPTIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 432.- ARTÍCULO ÚNICO. SE REFORMAN LA FRACCIÓN I DEL ARTÍCULO 28, LA FRACCIÓN VIII DEL ARTÍCULO 33, LA FRACCIÓN I DEL ARTÍCULO 58, LA FRACCIÓN III DEL ARTÍCULO 62, LA FRACCIÓN XV Y SE ADICIONA LA FRACCIÓN XVI AL ARTÍCULO 86 RECORRIENDO EN SU ORDEN LA FRACCIÓN SUBSECUENTE, TODOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado Michoacán de Ocampo.
+SEGUNDO. La Secretaría Ejecutiva cuenta con sesenta días hábiles, contados a partir de la entrada en vigor del presente Decreto para establecer y operar el sistema mencionado en la fracción XVI del artículo 86 de la presente Ley.
