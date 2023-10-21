@@ -1,8 +1,0 @@
-P.O. 8 DE NOVIEMBRE DE 2000.
-ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
-ARTICULO SEGUNDO.- De conformidad a lo dispuesto en el artículo 31 reformado, de esta Constitución, el Tercer Período Ordinario de Sesiones correspondiente al Segundo Año de Ejercicio Legal, de la LXVIII Legislatura Constitucional, iniciará el 15 de noviembre y terminará el 15 de diciembre del presente año; durante este periodo el Congreso se ocupará de los asuntos a que se refieren las fracciones I y III del artículo 31 reformado.
-ARTICULO TERCERO.- Por esta única ocasión, el Gobernador del Estado, deberá presentar al Congreso del Estado, a más tardar el 30 de noviembre del presente año, las iniciativas de Ley de Ingresos y de Presupuesto de Egresos para el ejercicio fiscal del año 2001.
-ARTICULO CUARTO.- De conformidad a lo dispuesto en el artículo 29 reformado, de esta Constitución, la LXVIII Legislatura Constitucional del Estado Libre y Soberano de Michoacán de Ocampo, terminará sus funciones el 15 de enero del año 2002, fecha en la cual iniciará sus funciones la LXIX Legislatura Constitucional.
-ARTICULO QUINTO.- En tanto se expidan las disposiciones legales reglamentarias que se deriven de las reformas contenidas en el presente Decreto, seguirán aplicándose las vigentes en lo que no se opongan a éstas.
-ARTICULO SEXTO.- Los consejeros ciudadanos que actualmente integran el Instituto Electoral de Michoacán, continuarán en el ejercicio del cargo como tales, hasta en tanto se realicen las designaciones de consejeros electorales, de acuerdo con la ley de la materia.
-ARTICULO SEPTIMO.- Se derogan todas aquellas disposiciones que se opongan al presente Decreto.
