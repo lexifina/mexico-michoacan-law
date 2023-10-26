@@ -1,3 +1,4 @@
+[N. DE E. EL DECRETO 465 CUENTA CON UNA SEGUNDA PUBLICACIÓN ACTUALIZADA EN EL PERIÓDICO OFICIAL NÚMERO 32 DE FECHA 24 DE NOVIEMBRE DE 2023.]
 LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MICHOACÁN DE OCAMPO
 Ley publicada en la Sexta Sección del Periódico Oficial del Estado de Michoacán, el martes 2 de junio de 2015.
 SALVADOR JARA GUERRERO, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
