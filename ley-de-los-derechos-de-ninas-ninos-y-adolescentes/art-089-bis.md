@@ -1,7 +1,7 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 25 DE OCTUBRE DE 2023)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 25 DE OCTUBRE DE 2023) (REPUBLICADO, P.O. 24 DE NOVIEMBRE DE 2023)
 CAPÍTULO XXX BIS
 CENTROS DE ATENCIÓN Y JUSTICIA PARA NIÑAS, NIÑOS Y ADOLESCENTES
-(ADICIONADO, P.O. 25 DE OCTUBRE DE 2023)
+(ADICIONADO, P.O. 25 DE OCTUBRE DE 2023) (REPUBLICADO, P.O. 24 DE NOVIEMBRE DE 2023)
 Artículo 89 bis. Los Centros de Atención y Justicia para Niñas, Niños y Adolescentes son espacios especialmente diseñados para que las autoridades estatales que los integran presten sus servicios de manera coordinada, conforme al interés superior y al derecho de prioridad de niñas, niños y adolescentes.
 De manera enunciativa y no limitativa, tienen como objetivo prestar auxilio inmediato, información, asesoría, ayuda, atención, protección y, en su caso, representación, así como seguimiento y desahogo de los procedimientos administrativos o judiciales en todos los casos en que niñas, niños o adolescentes sean posibles víctimas o testigos, o que sus derechos estén en riesgo de ser vulnerados, necesiten ser protegidos o deban ser restituidos.
 De acuerdo a sus respectivas atribuciones constitucionales, legales y reglamentarias, así como sus propios recursos humanos y materiales, los poderes Ejecutivo y Judicial, la Fiscalía General, la Comisión Estatal de los Derechos Humanos, todos del Estado de Michoacán de Ocampo, prestarán sus servicios de manera permanente en los Centros de Atención y Justicia para Niñas, Niños y Adolescentes. Por lo que ve al Poder Ejecutivo, prestarán sus servicios, al menos, la Secretaría de Seguridad Pública, la Secretaría de Salud, Registro Civil, el Sistema Estatal DIF y la Comisión Estatal de Atención a Víctimas. Los municipios colaborarán con las autoridades referidas en el marco de sus atribuciones.

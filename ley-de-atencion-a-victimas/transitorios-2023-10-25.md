@@ -1,4 +1,5 @@
 P.O. 25 DE OCTUBRE DE 2023.
+(REPUBLICADO, P.O. 24 DE NOVIEMBRE DE 2023)
 [N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 465.- ARTÍCULO CUARTO.- SE REFORMA LA FRACCIÓN IX DEL ARTÍCULO 37 DE LA LEY DE ATENCIÓN A VÍCTIMAS PARA EL ESTADO DE MICHOACÁN DE OCAMPO".]
 Primero. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 Segundo. La Secretaría de Gobierno coordinará los trabajos interinstitucionales a efecto de que el Centro de Atención y Justicia para Niñas, Niños y Adolescentes de la ciudad de Morelia comience a operar a más tardar dentro de los 180 días naturales siguientes a la entrada en vigor del presente Decreto. El Gobernador del Estado deberá designar al Director General a la entrada en funciones de este Centro, que será el encargado de la administración general de todos aquellos Centros al interior del Estado conforme se disponga en los lineamientos de coordinación a que alude el siguiente transitorio.
