@@ -1,0 +1,6 @@
+P.O. 30 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 472.- ÚNICO. SE REFORMA EL ARTÍCULO 142 DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Los ayuntamientos del Estado realizarán la adecuación a su reglamentación en materia de vía pública para cumplir con lo estipulado en el presente Decreto, y elaborarán un listado de estudios y establecimientos comerciales dedicados a la práctica de tatuajes, micropigmentaciones y perforaciones, a efecto de comprobar su legal funcionamiento, en un máximo de 90 días a su entrada en vigencia, incluyendo las sanciones correspondientes.
+TERCERO. El Titular del Poder Ejecutivo del Estado deberá publicar en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo, dentro de los 90 días hábiles siguientes a la publicación del presente Decreto, los formatos a que refiere el artículo que se reforma.
+CUARTO. Remítase el presente Decreto al Titular del Poder Ejecutivo del Estado, para su conocimiento y los efectos correspondientes.
