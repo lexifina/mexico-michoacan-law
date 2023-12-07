@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 6 DE DICIEMBRE DE 2023)
+Artículo 54 ter. Toda persona física o moral que dedique sus actividades a la cría de ejemplares caninos y/o felinos domésticos requiere de autorización previa emitida por autoridad competente para la realización de sus actividades, para lo cual el interesado deberá cumplir con los siguientes requisitos:
+I. Presentar solicitud ante la autoridad municipal, en la que conste nombre o razón social, domicilio legal, características del inmueble, número de animales no humanos, así como raza y especie, médico veterinario zootecnista a cargo, medidas de control sanitario adecuado y anexo de documentos que avalen que el lugar, establecimiento o instalación física es la adecuada para su mantenimiento, alojamiento, movilidad, alimentación, reproducción y manejo;
+II. Destinar un área que reúna las condiciones de seguridad y protección necesarias para que los animales no queden expuestos a las inclemencias del clima, y otros factores que afecte su bienestar, asimismo que cuenten con el acondicionamiento adecuado para el proceso de reproducción;
+III. Contar con los permisos necesarios en el ámbito respectivo;
+IV. Obtener el permiso de la Secretaría, y estar debidamente inscritos en el registro de criaderos del Estado de Michoacán;
+V. Llevar y mantener actualizado un registro de la procedencia y destino de cada uno de los animales, el cual deberá contener como mínimo el nombre del propietario, domicilio, características del animal y nombre, marcaje o identificación;
+VI. Proporcionar al comprador la guía informativa del animal del cual transmiten el dominio;
+VII. Contar con certificado de salud de cada uno de los animales, expedido por el médico veterinario o responsable técnico; y,
+VIII. Por cuestiones de madurez reproductiva y eficiencia biológica, sólo se podrán aparear después del primer año de vida, una sola vez al año y hasta la edad de 5 años a las hembras y será obligatorio que todos los animales que enajenen o transfieran mediante cualquier título legal a terceros se encuentren desparasitados y vacunados por un médico veterinario, de acuerdo con su edad biológica.
+Una vez concluido el ciclo de reproducción anteriormente mencionado, las hembras deberán ser esterilizadas, de lo cual deberá ser supervisado por las autoridades respectivas.
