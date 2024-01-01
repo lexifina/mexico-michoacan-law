@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE HACIENDA DEL ESTADO DE MICHOACÁN DE OCAMPO
 Ley publicada en la Décima Tercera Sección del Número 33 del Periódico Oficial del Estado de Michoacán de Ocampo, el lunes 27 de diciembre de 2021.
 ALFREDO RAMÍREZ BEDOLLA, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
