@@ -1,9 +1,12 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 2014)
 ARTICULO 16-B. Son obligaciones de los contribuyentes:
-I. Inscribirse en el Registro Estatal de Contribuyente en un plazo que no excederá de treinta días a partir de la fecha en que se genere la obligación fiscal, utilizando las formas oficiales.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 20 DE DICIEMBRE DE 2023)
+I. Inscribirse en el Registro Estatal de Contribuyentes en un plazo que no excederá de treinta días a partir de la fecha en que se genere la obligación fiscal, utilizando las formas oficiales.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 2016)
 Inscribir el vehículo en el padrón vehicular de la entidad, dentro de los quince días siguientes contados a partir de la fecha de adquisición;
 II. Señalar el domicilio fiscal en el que realicen actividades por las que se generen obligaciones fiscales, el cual será único para aquellos contribuyentes que cuenten con una o más sucursales, debiendo informar de los cambios de domicilio. Cuando en las formas de declaración se prevea el señalamiento de cambio de domicilio fiscal y así se manifieste, se considerará presentado el aviso a que se refiere este artículo al presentar dicha declaración ante la autoridad recaudadora correspondiente;
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2023)
+Señalar la dirección de correo electrónico para recibir notificaciones.
 III. Consignar en las declaraciones, manifestaciones y avisos previstos en este Código, la clave de Registro Estatal de Contribuyente asignada por la autoridad fiscal;
 IV. Declarar y en su caso, pagar los créditos fiscales en los términos que disponga este Código y la Ley;
 V. Firmar las declaraciones, manifestaciones y avisos previstos por este Código, bajo protesta de decir verdad;
@@ -19,7 +22,8 @@ XI. Presentar los avisos que modifiquen los datos declarados o la situación fis
 A) Cambio o corrección de nombre, denominación o razón social.
 B) Cambio de régimen de capital o se transforme en otro tipo de sociedad.
 Tratándose de personas jurídico colectivas, para tales efectos deberán exhibir el instrumento público en que conste dicha modificación.
-C) Cambio de domicilio fiscal o actualización de datos relativos a éste.
+(REFORMADO, P.O. 20 DE DICIEMBRE DE 2023)
+C) Cambio de domicilio fiscal o actualización de datos relativos a éste, y cambio o actualización del correo electrónico para recibir notificaciones;
 D) Suspensión de actividades.
 E) Reanudación de actividades.
 F) Actualización de obligaciones.
