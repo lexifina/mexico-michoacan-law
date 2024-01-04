@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE ENERO DE 2024)
+ARTÍCULO 82 TER. La Secretaría, en coordinación con las autoridades municipales, deberá implementar programas y acciones de capacitación, formación, actualización y evaluación del personal que labora en rastros municipales y unidades de sacrificio o mataderos, que garantice que el personal cuenta con destrezas, habilidades y conocimientos para desarrollar su labor, incluida la disposición de desechos de manera segura.
