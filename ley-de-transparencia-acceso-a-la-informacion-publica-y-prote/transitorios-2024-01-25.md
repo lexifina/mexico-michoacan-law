@@ -1,0 +1,4 @@
+P.O. 25 DE ENERO DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 608 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 2, FRACCIÓN IX; 54, FRACCIÓN II; 71, PÁRRAFO CUARTO; 107, DÉCIMO PÁRRAFO, Y SE LE ADICIONA UN PÁRRAFO UNDÉCIMO; 118, FRACCIÓN X; 119, FRACCIÓN VI; 124, PÁRRAFO QUINTO; 125, FRACCIÓN VII; 135; 153, PÁRRAFO CUARTO; 154, PÁRRAFO SEGUNDO; Y, 163, PÁRRAFO SEGUNDO; TODOS DE LA LEY DE TRANSPARENCIA, ACCESO A LA INFORMACIÓN PÚBLICA Y PROTECCIÓN DE DATOS PERSONALES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. Para garantizar el nombramiento anual y rotativo en base al criterio de escalonamiento, dentro de los tres días hábiles siguientes a la entrada en vigor del presente Decreto, los comisionados en funciones elegirán a quien ocupará la Presidencia del Instituto en los términos del presente Decreto.

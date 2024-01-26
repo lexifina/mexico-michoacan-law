@@ -1,5 +1,4 @@
 LEY DE TRANSPARENCIA, ACCESO A LA INFORMACIÓN PÚBLICA Y PROTECCIÓN DE DATOS PERSONALES DEL ESTADO DE MICHOACÁN DE OCAMPO
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL ESTADO DE MICHOACÁN EL 21 DE DICIEMBRE DE 2023.]
 Ley publicada en el Periódico Oficial del Estado de Michoacán de Ocampo, el miércoles 18 de mayo de 2016.
 SILVANO AUREOLES CONEJO, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente:
