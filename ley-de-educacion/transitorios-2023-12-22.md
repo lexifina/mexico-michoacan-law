@@ -1,5 +1,6 @@
 P.O. 22 DE DICIEMBRE DE 2023.
-[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 479.- ARTÍCULO ÚNICO.- SE EXPIDE LA LEY DE DEUDA PÚBLICA PARA EL ESTADO DE MICHOACÁN DE OCAMPO Y SUS MUNICIPIOS".]
+(F. DE E., P.O. 5 DE MARZO DE 2024)
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 479.- ARTÍCULO ÚNICO.- SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO II BIS DEL TÍTULO TERCERO, LA FRACCIÓN IX; Y, SE ADICIONA LA FRACCIÓN X RECORRIÉNDOSE LA SIGUIENTE EN SU ORDEN SUBSECUENTE DEL ARTÍCULO 69 SEXIES DE LA LEY DE EDUCACIÓN DEL ESTADO DE MICHOACÁN DE OCAMPO".]
 ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 ARTÍCULO SEGUNDO. Notifíquese al Titular del Poder Ejecutivo, para su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
 ARTÍCULO TERCERO. A la entrada en vigor del presente Decreto, las autoridades responsables de la aplicación del mismo, deberán de establecer en sus respectivos presupuestos de egresos del siguiente ejercicio fiscal los recursos necesarios para su cumplimiento.
