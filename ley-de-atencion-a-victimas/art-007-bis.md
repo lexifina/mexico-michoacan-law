@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE JULIO DE 2024)
+Artículo 7 Bis. La Comisión una vez determinada la guarda y custodia de las niñas, niños y adolescentes que hayan quedado en situación de orfandad como consecuencia del delito de feminicidio, deberá brindar apoyo psicológico y jurídico, y en aquellos casos que lo requieran apoyo económico o canalización para educación, alimentación y servicios médicos. La Comisión establecerá en su Reglamento, los casos en los cuales deberán de recibir apoyo económico.
