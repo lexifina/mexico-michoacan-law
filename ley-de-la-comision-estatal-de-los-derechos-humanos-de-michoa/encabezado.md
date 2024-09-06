@@ -1,5 +1,4 @@
 LEY DE LA COMISIÓN ESTATAL DE LOS DERECHOS HUMANOS DE MICHOACÁN DE OCAMPO
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 29 DE ENERO DE 2024.]
 Ley publicada en la Sexta Sección del Periódico Oficial del Estado de Michoacán, el viernes 21 de noviembre de 2014.
 SALVADOR JARA GUERRERO, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente:
