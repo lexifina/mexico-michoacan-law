@@ -1,5 +1,4 @@
 LEY DE EDUCACIÓN DEL ESTADO DE MICHOACÁN DE OCAMPO
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 5 DE MARZO DE 2024.]
 Ley publicada en la Sexta Sección en el Número 22 del Periódico Oficial del Estado de Michoacán, el viernes 29 de mayo de 2020.
 SILVANO AUREOLES CONEJO, Gobernador del Estado Libre y Soberano de Michoacán de Ocampo, a todos sus habitantes hace saber:
 El H. Congreso del Estado, se ha servido dirigirme el siguiente:
