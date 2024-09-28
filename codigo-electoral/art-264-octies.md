@@ -21,3 +21,5 @@ b) Restitución inmediata de sus derechos político-electorales;
 c) Disculpa pública; y,
 d) Medidas de no repetición.
 Las autoridades vinculadas en las medidas deberán dar cumplimiento en sus términos a las medidas que se dicten en los procedimientos y en caso de incumplimiento se impondrá una medida de apremio.
+(ADICIONADO, P.O. 27 DE SEPTIEMBRE DE 2024)
+Cuando la víctima ejerza un cargo público, la autoridad electoral tiene el deber de consultar a la víctima de violencia política en razón de género, si requiere que continúen vigentes las medidas de protección ordenadas en su favor a pesar de que haya conclnido (sic) su encargo, hasta en tanto las requiera la víctima o así lo considere la autoridad competente, a fin de garantizar el respeto a sus derechos humanos y salvaguardar plenamente su integridad.
