@@ -1,0 +1,6 @@
+P.O. 11 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 02 POR EL QUE "SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 118; SE REFORMA EL ARTÍCULO 141; SE REFORMA EL ARTÍCULO 142; SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 143, AGREGÁNDOSE UN SEGUNDO, TERCERO Y CUARTO PÁRRAFO; SE DEROGA EL ARTÍCULO 144; SE DEROGA EL ARTÍCULO 145; Y SE REFORMA EL ARTÍCULO 146 EN TODAS SUS FRACCIONES, ADICIONANDO DOS EXCLUYENTES DE RESPONSABILIDAD Y DEROGANDO SU ÚLTIMO PÁRRAFO, TODOS DEL CÓDIGO PENAL PARA EL ESTADO DE MICHOACÁN".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Notifíquese al Gobernador del Estado para su conocimiento y publicación.
+SEGUNDO. Notifíquese el presente Decreto al Poder Judicial del Estado para que surta los efectos couducentes (sic) de inmediato.
+TERCERO. Con la publicación de esta reforma se avanza en una primera etapa de la armonización legislativa orientada a garantizar la despenalización del aborto y el acceso a los Servicios de Aborto Seguro de acuerdo con el Lineamiento Técnico para la Atención del Aborto Seguro en México, emitido por el Sistema Nacional de Salud en coordinación con la Organización Panamericana de la Salud y la Organización Mundial de la Salud.
