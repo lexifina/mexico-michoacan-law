@@ -1,0 +1,5 @@
+P.O. 11 DE NOVIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 672.- ARTÍCULO ÚNICO.- SE REFORMA LA FRACCIÓN XIII DEL ARTÍCULO 7, LA FRACCIÓN VIII DEL ARTÍCULO 10, LA DENOMINACIÓN DEL CAPÍTULO IX, EL PRIMER PÁRRAFO DEL ARTÍCULO 32 Y SUS FRACCIONES III Y IV, EL ARTÍCULO 62 Y SUS FRACCIONES II, IV, V Y XIII; ASÍ MISMO SE ADICIONA UN PÁRRAFO A LA FRACCIÓN XIII DEL ARTÍCULO 62, TODOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+ARTÍCULO PRIMERO. Notifíquese al Titular del Poder Ejecutivo del Estado, para su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO TERCERO. A efecto de dar cumplimiento al presente Decreto, se concede al Titular del Poder Ejecutivo del Estado, 180 días hábiles para reformar, modificar y/o adecuar los reglamentos y manuales de operación de los centros de atención para niñas, niños y adolescentes.
