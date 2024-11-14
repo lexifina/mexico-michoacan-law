@@ -1,0 +1,4 @@
+P.O. 9 DE FEBRERO DE 2007.
+DECRETO NÚMERO 126 POR EL QUE SE REFORMA LA FRACCIÓN XII DEL ARTÍCULO 44; SE ADICIONA UN PÁRRAFO SEGUNDO A LA FRACCIÓN XI Y EL ACTUAL PÁRRAFO SEGUNDO SE CONVIERTE EN PÁRRAFO TERCERO DEL ARTÍCULO 44; SE REFORMA EL PÁRRAFO PRIMERO DE LA FRACCIÓN III DEL ARTÍCULO 123, Y SE ADICIONA UN PÁRRAFO SEGUNDO A LA FRACCIÓN III DEL ARTÍCULO 123 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MICHOACÁN DE OCAMPO.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO.- Remítase a los ayuntamientos del Estado, la Minuta Proyecto de Decreto, para que en el término de un mes después de recibida, envíen al Congreso del Estado de Michoacán de Ocampo el resultado de su votación, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo.

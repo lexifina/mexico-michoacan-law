@@ -1,0 +1,5 @@
+P.O. 28 DE ENERO DE 2013.
+ARTÍCULO PRIMERO. Remítase el presente Decreto a los ayuntamientos del Estado para que emitan el resultado de su votación, en los términos de la fracción IV del artículo 164 de la Constitución Política del Estado Libre y Soberano de Michoacán de Ocampo.
+ARTÍCULO SEGUNDO. Una vez aprobado el presente Decreto por la mayoría de los ayuntamientos, notifíquese al Titular del Poder Ejecutivo del Estado para su conocimiento y publicación respectiva en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+ARTÍCULO TERCERO. El presente Decreto entrará en vigor al día siguiente de su publicación, por lo que se manda se publique y observe para su conocimiento general y efectos legales procedentes.
+ARTÍCULO CUARTO. El Congreso del Estado deberá aprobar las reformas necesarias en las leyes secundarias relacionadas con la materia del presente, para dar cumplimiento a esta reforma constitucional, a más tardar en un plazo de noventa días, contados a partir de la fecha de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
