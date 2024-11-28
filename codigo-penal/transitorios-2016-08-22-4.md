@@ -1,5 +1,0 @@
-P.O. 22 DE AGOSTO DE 2016.
-[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 171.- SE ADICIONA AL TÍTULO DÉCIMO SEXTO, EL CAPÍTULO XII DENOMINADO TORTURA, CONFORMADO POR LOS ARTÍCULOS 254 TER, 254 QUATER Y 254 QUINQUIES AL CÓDIGO PENAL PARA EL ESTADO DE MICHOACÁN".]
-PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
-SEGUNDO. Los artículos 254 ter, 254 quater y 254 quinquies quedarán derogados al momento de la expedición de los tipos penales expedidos por el Congreso de la Unión en leyes generales, atendiendo la atribución señalada en el artículo 73 fracción XXI inciso a) y 124 de la Constitución Política de los Estados Unidos Mexicanos, y sus transitorios.
-TERCERO. Los procesos penales iniciados con fundamento en este Decreto, así como las sentencias emitidas con base en el mismo, no serán afectados por la entrada en vigor de dichas leyes generales. Por lo tanto, deberán concluirse y ejecutarse, respectivamente, conforme las disposiciones vigentes antes de la entrada en vigor de estas últimas.

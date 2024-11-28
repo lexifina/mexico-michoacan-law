@@ -1,0 +1,4 @@
+B.O. 1 DE SEPTIEMBRE DE 2015.
+[N. DE E. TRANSITORIOS DEL "DECRETO 2290.- POR EL QUE SE REFORMAN LAS FRACCIONES XII Y XIII DEL ARTÍCULO 3, LA FRACCIÓN II DEL ARTÍCULO 7 Y SE ADICIONA UNA FRACCIÓN XIV AL ARTÍCULO 3, LA FRACCIÓN VII DEL ARTÍCULO 8 Y EL ARTÍCULO 22; SE ADICIONAN UN TERCER PÁRRAFO AL ARTÍCULO 20 BIS Y UN TERCER PÁRRAFO AL ARTÍCULO 28, TODOS DE LA LEY DE TURISMO PARA EL ESTADO DE BAJA CALIFORNIA SUR".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+Artículo Segundo.- En el Presupuesto de Egresos del Gobierno del Estado para el Ejercicio Fiscal 2017, deberán incluirse las partidas presupuestales necesaria para los pueblos mágicos, a efecto de dar cumplimiento a lo ordenado por este Decreto.

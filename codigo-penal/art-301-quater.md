@@ -1,7 +1,0 @@
-(ADICIONADO, P.O. 29 DE AGOSTO DE 2022)
-Artículo 301 quáter. Se impondrá de uno a seis años de prisión y multa de cien a mil veces el valor diario de la Unidad de Medida y Actualización, a quien:
-I. Utilice insignias, uniformes, placas, gafetes, distintivos, escudos o siglas de instituciones de seguridad pública, a las que no tenga derecho o cualquier identificación que se asemeje a las anteriores, con el propósito de cometer un acto ilícito; y,
-II. Utilice vehículos pertenecientes a instituciones de seguridad pública a los que no tenga derecho, o cualquier otro vehículo con balizaje, colores o equipamiento que se asemeje a los utilizados por instituciones de seguridad pública, con el propósito de cometer un acto ilícito.
-Para efectos del presente Capítulo, se entiende por instituciones de Seguridad Pública a la Fiscalía General del Estado, a la Secretaría de Seguridad Pública, a la Policía Auxiliar del Estado de Michoacán de Ocampo, a la Coordinación del Sistema Penitenciario del Estado de Michoacán de Ocampo, a las Policías del Estado de Michoacán de Ocampo y a las Policías Municipales del Estado.
-También se entiende por instituciones de seguridad pública, exclusivamente para efectos del presente Capítulo, a las personas físicas o morales que prestan servicios de seguridad privada o comunitaria, y que cuentan con autorización de la Secretaría de Seguridad Pública del Estado.
-Las sanciones previstas en este capítulo se impondrán, con independencia de las que correspondan por otros delitos.

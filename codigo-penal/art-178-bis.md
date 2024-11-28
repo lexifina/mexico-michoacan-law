@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 28 DE JULIO DE 2020)
-Artículo 178 Bis. Tratamiento al sujeto activo y atención a la víctima. El sujeto activo del delito de violencia familiar seraì (sic) remitido a tratamiento psicoterapéutico a traveìs (sic) de instituciones puìblicas (sic), cuyos servicios deberaìn (sic) ser integrales y especializados; dichas instituciones deberaìn (sic) informar perioìdicamente (sic) al juez sobre los avances del tratamiento. En todo momento el Juez podraì (sic) ordenar las medidas necesarias para el cumplimiento de estas disposiciones.
-El Estado preveraì (sic) lo necesario para que las viìctimas (sic) del delito accedan de manera gratuita a atención psicoterapéutica y a información para su protección y prevención.

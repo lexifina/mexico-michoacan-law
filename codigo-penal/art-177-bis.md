@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2016)
-Artículo 177 bis. Al que sin tener relación de parentesco a que se refiere el artículo anterior, o de tutela de un menor de edad o incapaz, lo retenga o sustraiga sin el consentimiento de quien ejerza su custodia legítima o guarda, se le impondrá prisión de ocho a quince años y setecientos a mil días multa. En este caso, el delito será perseguido de oficio.
-Cuando el sujeto devuelva espontáneamente al menor o incapaz, dentro de los tres días siguientes a la comisión del delito y sin haberle causado algún daño, se le impondrá la mitad de las sanciones señaladas.

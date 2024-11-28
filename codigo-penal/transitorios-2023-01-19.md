@@ -1,3 +1,0 @@
-P.O. 19 DE ENERO DE 2023.
-[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 218 POR EL QUE "SE REFORMA EL SEGUNDO PÁRRAFO DEL ARTÍCULO 154, EL TERCER PÁRRAFO DEL ARTÍCULO 178, LA FRACCIÓN I DEL ARTÍCULO 178 TER Y EL ARTÍCULO 227; Y, SE ADICIONA UN TERCER PÁRRAFO AL ARTÍCULO 217 DEL CÓDIGO PENAL PARA EL ESTADO DE MICHOACÁN".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
