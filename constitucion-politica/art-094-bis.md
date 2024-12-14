@@ -5,6 +5,6 @@ TITULO TERCERO A
 (ADICIONADO CON LAS SECCIONES QUE LO INTEGRAN, P.O. 23 DE MAYO DE 2006)
 CAPITULO I
 De los Organismos Autónomos
-(ADICIONADO, P.O. 23 DE MAYO DE 2006)
+(REFORMADA SU DENOMINACIÓN, P.O. 13 DE DICIEMBRE DE 2024)
 SECCION I
-Del Tribunal de Justicia Administrativa
+Del Tribunal en Materia Anticorrupción y Administrativa
