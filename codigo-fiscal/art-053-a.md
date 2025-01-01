@@ -1,8 +1,14 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2016) (F. DE E., P.O. 23 DE ENERO DE 2017)
-ARTÍCULO 53-A. Las multas que este Capítulo establece, aplicables a los contribuyentes que tributen conforme al Título Segundo, Capítulo IV, Sección I, de la Ley de Hacienda del Estado, se considerarán reducidas en los casos que durante el ejercicio de facultades de comprobación del cumplimiento de las obligaciones fiscales el contribuyente corrija su situación fiscal:
+(REFORMADO PRIMER PÁRRAFO, P.O. 16 DE DICIEMBRE DE 2024)
+ARTÍCULO 53-A. Las multas que este Capítulo establece, aplicables a los contribuyentes que tributen conforme al Título Segundo de la Ley de Hacienda del Estado, se considerarán reducidas en el caso de que, durante el ejercicio de facultades de comprobación del cumplimiento de las obligaciones fiscales el contribuyente corrija su situación fiscal:
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2016)
 I. En un 50%, cuando el contribuyente solicite la reducción de multas a que se refiere este artículo antes de que la autoridad emita oficio de observaciones o levante última acta parcial, en el ejercicio de facultades de comprobación del cumplimiento de las obligaciones fiscales;
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2016)
 II. En un 30%, cuando el contribuyente solicite la reducción de multas a que se refiere este artículo después de notificado el oficio de observaciones o levantada la última acta parcial, pero antes de que se emita la resolución determinante de crédito fiscal, en ejercicio de facultades de comprobación del cumplimiento de las obligaciones fiscales.
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2016)
 III. En un 20% dentro de los 30 días siguientes, cuando se pague después de haberse notificado la resolución correspondiente.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2016)
 Sólo procederá la reducción de las multas a que se refiere este artículo, respecto de multas firmes o que sean consentidas por el infractor y siempre que un acto administrativo conexo no sea materia de impugnación, así como respecto de multas determinadas por el propio contribuyente.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2016)
 Se tendrá por consentida la infracción o, en su caso, la resolución que determine las contribuciones, cuando el contribuyente solicite la reducción de multas a que se refiere este artículo.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2016)
 Cuando la multa aplicable a una misma conducta infraccionada, sea modificada posteriormente mediante reforma al precepto legal que la contenga, las autoridades fiscales aplicarán la multa que resulte menor entre la existente en el momento en que se cometió la infracción y la multa vigente en el momento de su imposición.
