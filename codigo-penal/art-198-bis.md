@@ -1,0 +1,1 @@
+Artículo 198 bis. (DEROGADO, P.O. 13 DE ENERO DE 2020)

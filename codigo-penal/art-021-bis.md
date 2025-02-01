@@ -1,2 +1,0 @@
-(ADICIONADO, B.O. 1 DE SEPTIEMBRE DE 2015)
-Artículo 21 Bis.- La promoción turística es el conjunto de actividades, métodos y técnicas que se utilizan para informar y comercializar o recordar acerca de los productos, servicios, destinos y rutas turísticas que se ofrecen o comercializan dentro del Estado, con el objetivo de incrementar la afluencia y derrama económica del turismo local, nacional o internacional.

@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 14 DE AGOSTO DE 2018)
+Artículo 304 Bis. Las mismas penas que correspondan al autor del delito o delitos ambientales, además de la inhabilitación para desempeñar otro cargo, empleo o comisión hasta por cinco años se aplicarán al servidor público, que haya incurrido respecto de esos delitos en alguna de las siguientes conductas:
+I. Conceda licencia o autorización, de manera ilícita, para el funcionamiento de industrias, aprovechamiento forestal o cualquiera otra actividad reglamentada, sin la debida previsión o con el conocimiento de las condiciones (sic) causarán contaminación o sean nocivas a los recursos naturales, o que con motivo de sus inspecciones hubiere dejado de actuar conforme a sus atribuciones, una vez detectada la infracción de las normas respectivas; o,
+II. Intervenga en la comisión de un delito, durante el ejercicio de sus funciones, con motivo de sus funciones o aprovechándose de su calidad de servidor público.
+En el caso de los delitos contra el ambiente, cuando el autor o partícipe tenga la calidad de garante respecto de los bienes tutelados, la pena de prisión se aumentará hasta en tres años.

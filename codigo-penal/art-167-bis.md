@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 27 DE NOVIEMBRE DE 2024)
+Artículo 167 Bis. Los delitos de violación equiparada y de abuso sexual de personas menores de dieciocho años de edad se excluyen cuando las conductas típicas de los mismos sean realizadas de forma consensuada, libre e informada, entre una persona mayor de dieciséis años y menor de dieciocho años de edad, con otra persona mayor que aquella hasta por dos años de edad.

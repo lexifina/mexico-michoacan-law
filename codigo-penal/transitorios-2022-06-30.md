@@ -1,3 +1,3 @@
-B.O. 30 DE JUNIO DE 2022.
-[N. DE E. TRANSITORIO DEL "DECRETO 2837 SE REFORMAN LAS FRACCIONES XXIX Y XXX Y SE ADICIONA UNA FRACCIÓN XXXI AL ARTÍCULO 5; SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO II DEL TÍTULO CUARTO; SE REFORMAN LAS FRACCIONES X Y XI Y SE ADICIONA UNA FRACCIÓN XII AL ARTÍCULO 27, TODOS DE LA LEY DE TURISMO PARA EL ESTADO DE BAJA CALIFORNIA SUR".]
-ÚNICO.- El Presente Decreto entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+P.O. 30 DE JUNIO DE 2022.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 148 POR EL QUE "SE ADICIONA UN SEGUNDO Y UN TERCER PÁRRAFO AL ARTÍCULO 311 DEL CÓDIGO PENAL PARA EL ESTADO DE MICHOACÁN".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
