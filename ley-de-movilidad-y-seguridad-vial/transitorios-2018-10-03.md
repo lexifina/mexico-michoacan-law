@@ -1,3 +1,0 @@
-P.O. 3 DE OCTUBRE DE 2018.
-[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 828 DEL H. CONGRESO DEL ESTADO.- QUE ADICIONA UNA FRACCIÓN AL ARTÍCULO 17 DE LA LEY DE SALUD DEL ESTADO DE SINALOA, EN MATERIA DE ACOSO ESCOLAR".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".

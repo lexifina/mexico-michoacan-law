@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 17 DE SEPTIEMBRE DE 2018)
-Artículo 162 Bis 1. La cirugía plástica, estética y reconstructiva relacionada con cambiar o corregir el contorno o forma de diferentes zonas o regiones de la cara y del cuerpo, deberá efectuarse en establecimientos o unidades médicas con licencia sanitaria vigente, atendidos por profesionales de la salud especializados en dichas materias, de conformidad con lo que establece el artículo 162 Bis de la presente Ley.
