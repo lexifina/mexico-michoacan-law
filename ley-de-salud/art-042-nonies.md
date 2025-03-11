@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE MARZO DE 2025)
+ARTÍCULO 42 NONIES. Las autoridades de salud deberán identificar de manera clara, precisa y actualizada al personal de salud que sean objetores y no objetores de conciencia dentro de las instituciones. Esta identificación será fundamental para garantizar la atención oportuna y adecuada de las solicitudes relacionadas con la Interrupción Legal del Embarazo y la Interrupción Voluntaria del Embarazo, evitando cualquier retraso o incumplimiento en los servicios.
+Asimismo, se deberá garantizar que el ejercicio de la objeción de conciencia no represente un obstáculo sistemático para el acceso a estos servicios esenciales.

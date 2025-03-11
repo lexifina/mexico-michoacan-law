@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 10 DE MARZO DE 2025)
+ARTÍCULO 42 DECIES. Para ejercer la objeción de conciencia ILE O IVE, el personal médico o de enfermería deberá haber informado previamente, con oportunidad, su decisión a la institución en la que preste sus servicios, utilizando el mecanismo que disponga la Secretaría.
+Los datos personales para dar a conocer la declaración de objeción de conciencia del personal médico y de enfermería, ya sea en sentido positivo o negativo, estarán protegidos conforme a la Ley Federal de Protección de Datos Personales en Posesión de los Particulares y la Ley General de Protección de Datos Personales en Posesión de Sujetos Obligados y demás disposiciones aplicables.
+La protección de estos datos garantizará la confidencialidad y evitará cualquier tipo de discriminación hacia el personal, asegurando la operatividad de los servicios de salud en beneficio de las personas usuarias.
