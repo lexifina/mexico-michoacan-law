@@ -1,0 +1,3 @@
+P.O. 26 DE JUNIO DE 2025.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 184 POR EL QUE "SE REFORMA EL PRIMER PÁRRAFO Y SE ADICIONAN LAS FRACCIONES I, II Y III Y, UN SEGUNDO PÁRRAFO AL ARTÍCULO 57 DE LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS PARA EL ESTADO DE MICHOACÁN DE OCAMPO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
