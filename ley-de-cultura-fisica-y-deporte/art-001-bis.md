@@ -20,7 +20,9 @@ VIII. Las instituciones deportivas públicas y privadas del Estado deben colabor
 IX. La distinción entre las diversas manifestaciones o modalidades del deporte resulta necesaria para el óptimo, equitativo y ordenado desarrollo de los sistemas deportivos del Estado;
 (ADICIONADA, P.O. 28 DE MAYO DE 2015)
 X. El desarrollo y la práctica del deporte debe realizarse observando sus bases éticas;
-(ADICIONADA, P.O. 28 DE MAYO DE 2015)
-XI. Proteger la dignidad, integridad, salud y seguridad de los deportistas, así como asegurarse y defenderse el desarrollo sostenible del deporte; y,
-(ADICIONADA, P.O. 28 DE MAYO DE 2015)
-XII. La existencia de una adecuada cooperación a nivel Estatal y municipal es necesaria para el desarrollo equilibrado y universal de la cultura física y el deporte.
+(REFORMADA, P.O. 28 DE JULIO DE 2025)
+XI. Proteger la dignidad, integridad, salud y seguridad de los deportistas, así como asegurarse y defenderse el desarrollo sostenible del deporte;
+(REFORMADA, P.O. 28 DE JULIO DE 2025)
+XII. La existencia de una adecuada cooperación a nivel Estatal y municipal es necesaria para el desarrollo equilibrado y universal de la cultura física y el deporte; y,
+(ADICIONADA, P.O. 28 DE JULIO DE 2025)
+XIII. Garantizar la prevención, atención, sanción y erradicación del hostigamiento y acoso en el deporte, promoviendo un entorno seguro e inclusivo para todas las personas.
