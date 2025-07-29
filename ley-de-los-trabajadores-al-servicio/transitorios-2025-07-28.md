@@ -1,0 +1,6 @@
+P.O. 28 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 187 POR EL QUE "SE REFORMA LA FRACCIÓN VI DEL ARTÍCULO 35 DE LA LEY DE LOS TRABAJADORES AL SERVICIO DEL ESTADO DE MICHOACÁN DE OCAMPO Y DE SUS MUNICIPIOS".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. El Titular del Poder Ejecutivo del Estado, a través de las dependencias competentes, deberá diseñar, implementar, evaluar y dar seguimiento a los programas de capacitación y a las políticas públicas en materia de nuevas masculinidades previstas en el presente Decreto, en un plazo no mayor a ciento ochenta días naturales, contados a partir de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Para tal efecto, podrá coordinarse y auxiliarse de instituciones académicas, organismos autónomos, organizaciones de la sociedad civil y personas expertas en la materia, a fin de garantizar la imparcialidad, neutralidad y apego al rigor técnico y científico en el diseño de los contenidos.
+TERCERO. Notifíquese el presente Decreto al Titular del Poder Ejecutivo del Estado, para su conocimiento y efectos legales procedentes.
