@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 30 DE MARZO DE 2023)
 ARTÍCULO 17 B. La atención materno-infantil abarca el período que va del embarazo, parto, posparto y puerperio, en razón de la condición de vulnerabilidad en que se encuentra la mujer y el producto; tiene carácter prioritario y comprende, entre otras, las acciones siguientes:
-I. La atención del niño y la vigilancia de su crecimiento, desarrollo integral, incluyendo la promoción de la vacunación oportuna, atención prenatal, así como la prevención y detección de las condiciones y enfermedades hereditarias y congénitas;
+(REFORMADA, P.O. 28 DE AGOSTO DE 2025)
+I. La atención de niñas y niños, la vigilancia de su crecimiento, desarrollo integral, incluyendo la promoción y provisión del acceso oportuno a las vacunas contempladas en los esquemas nacionales de vacunación, atención prenatal, así como la prevención y detección de las condiciones y enfermedades hereditarias y congénitas;
 II. La aplicación de la prueba del tamiz metabólico neonatal, preferentemente entre el segundo y séptimo día de vida. Además, la aplicación del tamiz metabólico neonatal ampliado a todo prematuro, así como a cualquier neonato en caso de ser necesario conforme examen clínico previo;
 III. La revisión de retina al prematuro;
 IV. La aplicación del tamiz oftalmológico neonatal, a la cuarta semana del nacimiento, para la detección temprana de malformaciones que puedan causar ceguera, y su tratamiento, en todos sus grados;
