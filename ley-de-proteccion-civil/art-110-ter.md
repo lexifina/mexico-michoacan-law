@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2025)
+Artículo 110 Ter. En el interior de establecimientos, inmuebles o espacios de tipo cerrado, destinados a la prestación de servicios o a la realización de actividades de entretenimiento, esparcimiento o de cualquier índole similar, quedará estrictamente prohibida la ejecución de actos que pongan en peligro a los asistentes, especialmente los que impliquen uso de pirotecnia o fuego.

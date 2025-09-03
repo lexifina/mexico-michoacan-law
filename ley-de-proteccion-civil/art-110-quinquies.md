@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2025)
+Artículo 110 Quinquies. Una vez recibida la denuncia ciudadana y cumplidos los requisitos correspondientes, la Coordinación Estatal o Municipal efectuara las diligencias necesarias para la evaluación de los hechos reportados, tomando las medidas de seguridad que el caso amerite, conforme a lo establecido en la presente ley y los reglamentos que expidan las autoridades competentes.

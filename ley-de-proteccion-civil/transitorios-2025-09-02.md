@@ -1,0 +1,4 @@
+P.O. 2 DE SEPTIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 230 POR EL QUE SE "SE ADICIONAN LOS ARTÍCULOS 110 BIS, 110 TER, 110 QUÁTER Y 110 QUINQUIES, SE MODIFICA LA DENOMINACIÓN DEL CAPÍTULO XIX Y SE ADICIONA LA SECCIÓN PRIMERA, LA SECCIÓN SEGUNDA Y LA SECCIÓN TERCERA AL MISMO; Y SE DEROGAN LOS ARTÍCULOS 113 Y 119, DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+Primero. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Segundo. El Titular del Poder Ejecutivo del Estado y los Ayuntamientos, en un término no mayor a 180 ciento ochenta días hábiles, a partir de la entrada en vigor del presente Decreto, deberán armonizar las disposiciones reglamentarias correspondientes para el cumplimiento del presente Decreto.

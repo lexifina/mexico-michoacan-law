@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2025)
+Artículo 110 Bis. Previo a la realización de eventos públicos y en espacios de concentración masiva, deberán elaborarse Programas Especiales de Protección Civil, los cuales serán entregados oportunamente a las autoridades de Protección Civil para su aprobación y coordinación con otras instancias de seguridad. Las principales medidas del programa y las conductas apropiadas en caso de una contingencia deberán ser difundidas al público participante por parte del organizador, antes del evento o al inicio del mismo.
