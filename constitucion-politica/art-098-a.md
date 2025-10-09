@@ -6,8 +6,8 @@ En materia electoral, la interposición de los recursos, en ningún caso produce
 El Tribunal Electoral del Estado será órgano permanente, autónomo y máxima autoridad jurisdiccional electoral.
 (REFORMADO, P.O. 25 DE JUNIO DE 2014)
 El Tribunal Electoral cubrirá en su desempeño, además de lo que determine la Ley, las actividades relativas al fomento de la cultura de la legalidad en materia de justicia electoral y participación ciudadana, consistentes en tareas de capacitación, investigación y difusión.
-(REFORMADO, P.O. 25 DE JUNIO DE 2014)
-El Pleno del Tribunal Electoral declarará la legalidad y validez de la elección de Gobernador del Estado, una vez resueltos, en su caso, los medios de impugnación que se hubieren interpuesto en contra de la misma.
+(REFORMADO, P.O. 8 DE OCTUBRE DE 2025)
+El Pleno del Tribunal Electoral declarará la legalidad y validez de la elección de la Gobernadora o Gobernador del Estado, una vez resueltos, en su caso, los medios de impugnación que se hubieren interpuesto en contra de la misma.
 (REFORMADO, P.O. 25 DE JUNIO DE 2014)
 El Tribunal Electoral del Estado se organizará en los términos que señale la ley de la materia.
 (REFORMADO, P.O. 25 DE JUNIO DE 2014)
