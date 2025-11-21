@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2025)
+ARTÍCULO 177 QUATER. Corresponde a la Secretaría, a través del Centro Estatal de Transfusión Sanguínea, integrar y operar el Registro Estatal de Donadores de Sangre, con el objeto de contar con un padrón actualizado de personas que consientan voluntariamente la extracción y disposición de su sangre para fines terapéuticos, conforme a la legislación aplicable.
+Los bancos de sangre ubicados en hospitales, así como los establecimientos autorizados para la extracción de sangre con fines terapéuticos, deberán remitir de forma inmediata al Centro Estatal de Transfusión Sanguínea la información correspondiente a los donadores voluntarios, para su incorporación al Registro.
+La información contenida en el Registro será confidencial y estará sujeta a las disposiciones de la Ley de Protección de Datos Personales en Posesión de Sujetos Obligados del Estado de Michoacán de Ocampo.
