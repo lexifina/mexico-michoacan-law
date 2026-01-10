@@ -1,0 +1,4 @@
+P.O. 9 DE ENERO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 255.- ARTÍCULO PRIMERO.- SE REFORMAN LOS ARTÍCULOS 2 FRACCIÓN III, 5 PRIMER PÁRRAFO, 20 FRACCIÓN I, INCISO A), FRACCIÓN II PRIMER Y SEGUNDO PÁRRAFOS, 21 PRIMER PÁRRAFO, 22, 24, 32, 35, 53 PRIMER PÁRRAFO, 55, 56 SÉPTIMO PÁRRAFO, 57 PRIMER PÁRRAFO, 62, 63 Y 136 DE LA LEY DE HACIENDA MUNICIPAL DEL ESTADO DE MICHOACÁN DE OCAMPO.- ARTÍCULO SEGUNDO.- SE REFORMA EL ARTÍCULO 5 FRACCIÓN V DE LA LEY DE LA FUNCIÓN REGISTRAL Y CATASTRAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+Primero. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Segundo. Dese cuenta del presente Decreto al Titular del Poder Ejecutivo del Estado, al Titular de la Secretaría de Finanzas y Administración del Gobierno del Estado y a los 113 municipios del Estado, para sus efectos conducentes.
