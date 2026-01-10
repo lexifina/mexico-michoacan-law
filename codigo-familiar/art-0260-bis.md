@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2026)
+Artículo 260 bis. Durante el divorcio, no se otorgará la guardia y custodia de hijas e hijos menores de edad a la persona integrante del matrimonio, cuando existan elementos que permitan concluir que existe violencia contra de alguno o algunos de los integrantes del núcleo familiar; parta (sic) acreditar cualquier conducta violenta se podrán ofrecer y admitir cualquier medio de prueba que no sea ilícito que hagan presumir la existencia de un riesgo que pueda dañar la integridad física o mental de las hijas e hijos.
