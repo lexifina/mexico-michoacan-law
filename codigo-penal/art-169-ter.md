@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2026)
+Artículo 169 ter. Ciberacoso.
+Comete el delito de ciberacoso y será sancionado con una pena de tres a seis años de prisión y de cincuenta a quinientos días de multa a quien, a través de medios digitales, redes sociales, plataformas electrónicas, dispositivos de comunicación o cualquier tecnología de la información, hostigue, intimide, amenace, vigile, difunda información personal sin consentimiento, o realice actos que generen daño psicológico, emocional o atenten contra la dignidad, integridad o privacidad de otra persona.
+Para la configuración del delito de ciberacoso bastará que la conducta descrita se realice en una sola ocasión. Si la misma se comete de manera reiterada o con la intención de menoscabar la tranquilidad, seguridad o reputación de la víctima, las penas se incrementarán en una mitad.
+Si el delito se comete en persona menor de edad, con discapacidad, adulta mayor, o bajo perfiles falsos o en anonimato, se impondrán a los responsables las penas de cuatro a ocho años de prisión y de cien a quinientos días de multa.

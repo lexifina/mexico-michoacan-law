@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2026)
+Artículo 169 quater. Acecho.
+Se impondrán de seis meses a dos años de prisión y de treinta a ciento veinte días de multa, a quien de manera reiterada, sistemática o persistente, sin el consentimiento de la persona afectada, lleve a cabo conductas de seguimiento, vigilancia, observación, búsqueda de cercanía física o virtual, envío de mensajes, objetos, o cualquier otra forma de contacto o comunicación, a través de medios físicos, digitales o tecnológicos, que generen en la víctima temor, angustia, afectación emocional, alteración de su vida cotidiana o sensación de peligro.
+Cuando la víctima sea menor de edad, con discapacidad, adulta mayor, o el delito se cometa usando perfiles falsos o en anonimato, se impondrán de uno a cuatro años de prisión y de cuarenta a ciento ochenta veces el valor diario de la unidad de medida y actualización.
