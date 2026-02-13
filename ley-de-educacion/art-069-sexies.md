@@ -3,7 +3,8 @@ Artículo 69 Sexies. En la elaboración de planes, programas y políticas educat
 I. Elaborar un marco teórico, en revisión permanente, para la educación emocional;
 II. Identificar las competencias emocionales básicas para la vida en la sociedad actual;
 III. Secuenciar la adquisición de competencias emocionales a lo largo del currículum;
-IV. Formar al profesorado en eduación emocional, a fin de posibilitar el diseño, aplicación y evaluación de programas contextualizados en centros educativos;
+(REFORMADA, P.O. 12 DE FEBRERO DE 2026)
+IV. Impulsar los procesos de información para que el profesorado conozca los programas en educación socioemocional y fomento de la salud mental en los centros educativos, en coordinación con las autoridades de salud;
 V. Crear materiales curriculares para apoyar la práctica de la educación emocional por parte del profesorado;
 VI. Crear instrumentos de evaluación y diagnóstico para la educación emocional;
 VII. Diseñar, aplicar y evaluar programas de educación emocional para el ciclo vital;
