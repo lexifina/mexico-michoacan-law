@@ -1,5 +1,6 @@
 P.O. 9 DE ENERO DE 2026.
 [N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 267 POR EL QUE "SE REFORMA LA FRACCIÓN V DEL INCISO A) DEL ARTÍCULO 112 DEL CÓDIGO ELECTORAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
-SEGUNDO. Los partidos políticos realizarán los ajustes presupuestales necesarios para dar cumplimiento a lo dispuesto en el presente Decreto a partir del ejercicio fiscal siguiente a su entrada en vigor.
+(F. DE E., P.O. 2 DE MARZO DE 2026)
+SEGUNDO. Los partidos políticos realizarán los ajustes presupuestales necesarios y suficientes para dar cumplimiento a lo dispuesto en el presente Decreto, a partir del mes siguiente a su publicación en el Periódico Oficial del Gobierno Constitucional del estado de Michoacán. De ser necesario, el Instituto Electoral de Michoacán, deberá de hacer los ajustes necesarios en los presupuestos de los partidos políticos en el presente año, a efecto de que se cumpla con lo dispuesto en este decreto. Posterior a ello, deberá notificar al Instituto Nacional Electoral de los ajustes realizados para efectos de la fiscalización y otros temas competencia de dicha autoridad nacional.
 TERCERO. Se instruye al Instituto Electoral de Michoacán para que en el ámbito de sus atribuciones, vigile el estricto cumplimiento de la presente reforma y realice las adecuaciones a su normativa interna que resulten necesarias.
