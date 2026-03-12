@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE MARZO DE 2026)
+Artículo 59 Quáter. La CECUFID, deberá coordinarse con la Secretaría de Igualdad Sustantiva y Desarrollo de las Mujeres Michoacanas y con la Comisión Estatal de los Derechos Humanos para brindar asesoría jurídica, atención integral y acompañamiento a las mujeres, adolescentes y niñas víctimas de violencia en cualquiera de sus tipos y modalidades, en el ejercicio de su derecho a la cultura física y al deporte.
