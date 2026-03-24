@@ -9,3 +9,4 @@ DADO EN EL SALÓN DE SESIONES DEL PODER LEGISLATIVO, en Morelia, Michoacán de O
 PRESlDENTE.- DlP. GUSTAVO ARIAS GARDUÑO.- PRIMER SECRETARIO.- DIP. MARTÍN GODOY SÁNCHEZ.- SEGUNDO SECRETARIO.- DIP. JOSÉ LUIS ESQUIVEL ZALPA.- TERCER SECRETARIO.- DIP. GABRIEL ARGUETA JAlMES. (Firmados).
 En cumplimiento a lo dispuesto por la fracción I, del artículo 60 de la Constitución Política del Estado de Michoacán de Ocampo, y para su debida publicación y observancia, promulgo el presente Decreto, en la residencia del Poder Ejecutivo, en la Ciudad de Morelia, Michoacán, a los 04 cuatro días del mes de enero del año 2008 dos mil ocho.
 SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- LÁZARO CÁRDENAS BATEL.- LA SECRETARIA DE GOBIERNO.- MARÍA GUADALUPE SÁNCHEZ MARTÍNEZ. (Firmados).
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
