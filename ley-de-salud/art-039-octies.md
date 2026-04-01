@@ -1,0 +1,2 @@
+(ADICIONADA, P.O. 31 DE MARZO DE 2026)
+ARTÍCULO 39 OCTIES. Para garantizar la calidad de los servicios de salud relacionados con la prevención, detección, diagnóstico, atención y tratamiento del cáncer de próstata y testicular, la Secretaría de Salud del Estado, en el ámbito de sus atribuciones, promoverá y fortalecerá las medidas necesarias para que dichos servicios se presten conforme a las disposiciones jurídicas y técnicas aplicables.

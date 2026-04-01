@@ -1,0 +1,8 @@
+(ADICIONADA, P.O. 31 DE MARZO DE 2026)
+ARTÍCULO 39 NONIES. La Secretaría de Salud del Estado impulsará la instrumentación y coordinación de acciones para la prestación de los servicios en la atención integral del cáncer de próstata y testicular y, para tal efecto, podrá:
+I. Promover la formulación y actualización del Programa de Atención Integral del Cáncer de Próstata y Testicular del Estado de Michoacán, en congruencia con las políticas y programas del Sistema Nacional de Salud;
+II. Impulsar la elaboración y actualización de protocolos para la prevención, detección y diagnóstico oportuno del cáncer de próstata y testicular, conforme a las normas oficiales mexicanas y demás disposiciones aplicables;
+III. Fortalecer los protocolos para el tratamiento, seguimiento y rehabilitación integral de las personas con diagnóstico sospechoso, altamente sospechoso o confirmado de cáncer de próstata o testicular, de conformidad con la normativa aplicable;
+IV. Promover el desarrollo y fortalecimiento de sistemas de información que permitan dar seguimiento oportuno a los pacientes a quienes se les practiquen estudios de detección y que presenten diagnóstico sospechoso, altamente sospechoso o confirmado de cáncer de próstata o testicular;
+V. Impulsar mecanismos de registro con fines de planeación, evaluación y mejora continua de los servicios de salud en esta materia, en observancia de la normativa en materia de protección de datos personales; y,
+VI. Fomentar la coordinación con instituciones públicas, sociales y privadas del sector salud para la prestación de servicios relacionados con la atención del cáncer de próstata y testicular, en el ámbito de sus respectivas competencias.

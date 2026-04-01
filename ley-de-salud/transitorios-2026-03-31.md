@@ -1,0 +1,5 @@
+P.O. 31 DE MARZO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 414 POR EL QUE "SE REFORMAN LAS FRACCIONES VI Y X DEL ARTÍCULO 31; Y SE ADICIONA AL TÍTULO SEGUNDO, SISTEMA ESTATAL DE SALUD, CAPÍTULO IV DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO, UNA SECCIÓN SEGUNDA DENOMINADA «ATENCIÓN INTEGRAL DEL CÁNCER DE PRÓSTATA Y TESTICULAR», INTEGRADA POR LOS ARTÍCULOS 39 SEPTIES, 39 OCTIES, 39 NONIES, 39 DECIES, 39 UNDECIES Y 39 DUODECIES".]
+Primero. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Michoacán de Ocampo.
+Segundo. La Secretaría de Salud del Estado, en el ámbito de sus atribuciones, realizará las adecuaciones administrativas necesarias para la implementación de las disposiciones del presente Decreto, conforme a la normativa aplicable.
+Tercero. La implementación de las acciones previstas en el presente Decreto se llevará a cabo con los recursos humanos, materiales y presupuestales disponibles de las dependencias y entidades competentes, sin que ello implique la autorización de ampliaciones presupuestales adicionales.

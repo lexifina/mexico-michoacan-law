@@ -1,0 +1,2 @@
+(ADICIONADA, P.O. 31 DE MARZO DE 2026)
+ARTÍCULO 39 UNDECIES. Los hombres cuyos resultados de estudios clínicos indiquen sospecha, alta sospecha o confirmación de cáncer de próstata o testicular tendrán derecho a recibir evaluación diagnóstica, seguimiento oportuno y atención adecuada por parte del personal de salud, en las unidades médicas que determine la autoridad sanitaria competente, conforme a la normativa aplicable.
