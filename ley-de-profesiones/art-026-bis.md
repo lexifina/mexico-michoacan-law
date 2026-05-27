@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2026)
+ARTÍCULO 26 BIS. El servicio social realizado por estudiantes de nivel medio superior y superior, conforme a la normatividad vigente y debidamente acreditado por la institución receptora, será reconocido como experiencia laboral para efectos de empleabilidad, programas de primer empleo, prácticas profesionales y demás políticas públicas en materia de trabajo y juventud.
