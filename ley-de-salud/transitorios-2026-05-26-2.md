@@ -1,0 +1,5 @@
+P.O. 26 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 446.- ÚNICO. SE REFORMA EL ARTÍCULO 39 TER; Y, SE ADICIONA UN SEGUNDO Y TERCER PÁRRAFOS AL ARTÍCULO 39 QUATER DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+Primero. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Segundo. La implementación de las acciones derivadas del presente Decreto se realizará con cargo al presupuesto aprobado a las dependencias competentes para el ejercicio fiscal correspondiente, por lo que no se autorizarán ampliaciones presupuestales específicas para su cumplimiento.
+Tercero. La Secretaría de Salud del Estado emitirá, en su caso, los lineamientos, mecanismos de coordinación y disposiciones administrativas necesarias para la operación y actualización del Registro de Casos de Cáncer en la Infancia y la Adolescencia del Estado de Michoacán, en un plazo no mayor a ciento ochenta días hábiles contados a partir de la entrada en vigor del presente Decreto.
