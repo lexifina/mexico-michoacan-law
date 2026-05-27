@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2026)
+Artículo 42 Ter. La atención a la salud mental de niñas, niños y adolescentes deberá considerar las distintas etapas de su desarrollo físico, emocional, cognitivo y social, así como los factores familiares, escolares y comunitarios que influyan en su bienestar emocional.
+Las acciones previstas en este Capítulo tendrán un enfoque preventivo, formativo y de atención temprana, orientado al fortalecimiento de habilidades socioemocionales y vínculos afectivos sanos, reconociendo que la atención emocional desde la niñez contribuye a la formación de personas adultas emocionalmente sanas y a la consolidación de entornos familiares y sociales estables.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2026)
+Artículo 42 Quinquies. Las niñas, niños y adolescentes que presenten afectaciones a su salud mental tendrán derecho a recibir atención integral, continua y oportuna, la cual podrá incluir evaluación psicológica, atención médica especializada en psiquiatría, intervención interdisciplinaria y acompañamiento familiar, respetando en todo momento la dignidad, confidencialidad y autonomía progresiva de la persona menor de edad.
