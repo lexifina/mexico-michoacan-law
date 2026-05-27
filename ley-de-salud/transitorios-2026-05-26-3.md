@@ -1,0 +1,5 @@
+P.O. 26 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 430.- PRIMERO. SE ADICIONA UNA FRACCIÓN XXXIV TER AL ARTÍCULO 2°; SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 3°; SE ADICIONA LA FRACCIÓN X BIS Y SE REFORMA LA FRACCIÓN XVII DEL ARTÍCULO 17 C; Y, SE REFORMA EL ARTÍCULO 30, TODOS DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+Primero. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+Segundo. La Secretaría de Salud del Estado contará con un plazo de ciento ochenta días naturales para emitir o adecuar los lineamientos y protocolos necesarios para el cumplimiento del presente Decreto. La implementación de las acciones previstas se realizará de manera gradual y progresiva, conforme a la capacidad instalada, disponibilidad presupuestaria y suficiencia operativa de las unidades administrativas competentes.
+Tercero. Las dependencias y entidades competentes realizarán las adecuaciones administrativas necesarias para el cumplimiento del presente Decreto con los recursos humanos, materiales y financieros existentes.
