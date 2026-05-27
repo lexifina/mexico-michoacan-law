@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2026)
+ARTÍCULO 14 BIS. Los cargos administrativos de primer nivel dentro del sector salud estatal, incluyendo direcciones, subdirecciones, coordinaciones y jefaturas de área en hospitales, jurisdicciones sanitarias y unidades administrativas, podrán ser desempeñados por profesionistas con título y cédula profesional en alguna rama de las ciencias de la salud, siempre que cumplan con el perfil, la experiencia, la capacidad técnica y los demás requisitos establecidos en las disposiciones legales, reglamentarias y administrativas aplicables.
