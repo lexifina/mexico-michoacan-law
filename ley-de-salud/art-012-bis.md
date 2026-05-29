@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 28 DE MAYO DE 2026)
+ARTÍCULO 12 BIS. La Secretaría promoverá e implementará, acciones y programas de salud digital, mediante el uso de herramientas tecnológicas que permitan ampliar el acceso a los servicios de salud.
+En el marco de dichas acciones podrán desarrollarse modalidades de telemedicina, orientadas a fortalecer la atención médica, la orientación, la prevención, el seguimiento clínico, el apoyo diagnóstico y la interconsulta, especialmente en zonas rurales, alejadas o de difícil acceso.
+En la prestación de los servicios y acciones previstos en el presente artículo se deberá observar lo dispuesto en la Ley General de Salud, la presente Ley y demás disposiciones aplicables en materia de prestación de servicios de salud, protección de datos personales, confidencialidad de la información clínica, consentimiento informado y seguridad del paciente.
