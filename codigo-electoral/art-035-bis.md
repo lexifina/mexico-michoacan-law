@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2026)
+ARTÍCULO 35 BIS. La Comisión Auxiliar para la Verificación de Integridad de Candidaturas, es un órgano dependiente del Consejo General del Instituto, con carácter temporal y vigente durante el proceso electoral, cuyo objetivo será constituir un enlace para turnar las solicitudes de registro de personas candidatas de partidos políticos y candidaturas independientes a la Comisión de Verificación de Integridad en Candidaturas del Instituto Nacional.
