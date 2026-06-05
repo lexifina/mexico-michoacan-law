@@ -1,0 +1,5 @@
+P.O. 4 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 457 POR EL QUE "SE ADICIONA UNA FRACCIÓN XII BIS AL ARTÍCULO 9 DE LA LEY DE ASISTENCIA SOCIAL DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. La ejecución de las acciones derivadas del presente Decreto se realizará con cargo al presupuesto autorizado al Organismo y a las dependencias competentes para el ejercicio fiscal correspondiente, por lo que no se autorizarán ampliaciones presupuestales adicionales con motivo de su entrada en vigor.
+TERCERO. El Organismo, en coordinación con las instancias competentes y de conformidad con su disponibilidad presupuestaria, técnica y operativa, deberá emitir en un plazo de 90 días lineamientos internos o protocolos de actuación para la detección, orientación, acompañamiento y, en su caso, canalización de niñas, niños y adolescentes sujetos de la atención tanatológica prevista en el presente Decreto.
