@@ -1,0 +1,5 @@
+P.O. 4 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 456 POR EL QUE "SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO I DEL TÍTULO SÉPTIMO, LOS ARTÍCULOS 262, 263; Y, LA FRACCIÓN IV DEL ARTÍCULO 265 DE LA LEY DE SALUD DEL ESTADO DE MICHOACÁN DE OCAMPO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. La aplicación de las disposiciones contenidas en el presente Decreto se realizará con cargo al presupuesto autorizado de las dependencias y entidades competentes, por lo que no se autorizarán ampliaciones presupuestales adicionales para el ejercicio fiscal correspondiente.
+TERCERO. En un plazo no mayor a ciento ochenta días naturales, contados a partir de la entrada en vigor del presente Decreto, la Secretaría de Educación en el Estado, en coordinación con las instancias competentes, incorporará orientaciones pedagógicas sobre salud renal en los planes y programas de estudio aplicables.
