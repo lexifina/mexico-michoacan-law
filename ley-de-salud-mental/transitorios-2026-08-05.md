@@ -1,0 +1,5 @@
+P.O. 5 DE AGOSTO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO LEGISLATIVO NÚMERO 480.- ARTÍCULO SEGUNDO.- SE REFORMAN LAS FRACCIONES VI Y VII Y SE ADICIONA LA FRACCIÓN VIII AL ARTÍCULO 16 DE LA LEY DE SALUD MENTAL DEL ESTADO DE MICHOACÁN DE OCAMPO ".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Michoacán de Ocampo.
+SEGUNDO. La Secretaría de Salud del Estado implementará las acciones derivadas del presente Decreto de manera progresiva, conforme a su capacidad institucional, operativa y presupuestaria.
+TERCERO. La Secretaría de Salud del Estado podrá coordinarse con las instituciones públicas, sociales y privadas que resulten competentes, a efecto de fortalecer las acciones de orientación, apoyo emocional y prevención de la sobrecarga física, emocional y mental de las personas cuidadoras.
