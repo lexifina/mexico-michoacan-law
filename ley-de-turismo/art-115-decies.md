@@ -9,7 +9,7 @@ V. Constancia de situación fiscal;
 VI. Comprobante de domicilio;
 VII. Número telefónico y correo electrónico para recibir y resolver quejas por parte de vecinos y turistas;
 VIII. Carátula de la póliza de seguro de responsabilidad civil de la plataforma, contratada con una institución aseguradora acreditada ante la Comisión Nacional de Seguros y Fianzas, que cubra los riesgos derivados de su actividad de intermediación;
-IX. Descripción del sistema técnico que implementarán para verificar la autenticidad y vigencia de los folios de registro de los anfitriones en el Padrón Estatal;
+IX. (DEROGADA, P.O. 6 DE AGOSTO DE 2026)
 X. Acuerdo de colaboración mediante el cual se comprometan a actuar como agentes de retención del Impuesto sobre Hospedaje, en los términos que señale la legislación del Estado; y,
 XI. Las demás establecidas en el Reglamento de esta Ley.
 La inscripción en este Padrón constituirá la autorización para operar en el Estado de Michoacán de Ocampo.
