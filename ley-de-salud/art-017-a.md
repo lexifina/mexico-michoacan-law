@@ -8,12 +8,15 @@ Durante el embarazo, puerperio o postparto, trabajo de parto y en la atención a
 a) Informar a la paciente y a las personas que la acompañan, sobre las distintas intervenciones médicas que pudieren tener lugar durante esos procesos de manera que pueda elegir libremente cuando existan alternativas;
 b) Tratar a la paciente con respeto, de modo individual y personalizado, de tal manera que se le garantice la intimidad durante todo el proceso asistencial y se tenga en consideración sus pautas culturales;
 c) Facilitar la participación de la paciente como protagonista de su propio parto;
-d) Priorizar el parto natural y respetar los tiempos biológicos y psicológicos de la paciente, evitando prácticas invasivas y suministro de medicación que no estén justificados por el estado de salud de la parturienta o de la persona por nacer;
-e) Informar a la paciente sobre la evolución de su parto, el estado de su hijo o hija y, en general, hacerla partícipe de las diferentes actuaciones de los profesionales;
+(REFORMADO, P.O. 18 DE AGOSTO DE 2026)
+d) Priorizar el parto natural y respetar los tiempos biológicos y psicológicos de la paciente, favoreciendo, cuando no exista contraindicación médica, el contacto piel con piel al pecho materno y el respeto de la primera hora de vida, evitando prácticas invasivas y suministro de medicación que no estén justificados por el estado de salud de la parturienta o de la persona por nacer;
+(REFORMADO, P.O. 18 DE AGOSTO DE 2026)
+e) Informar a la paciente sobre la evolución de su parto, el estado de su hijo o hija y guiarla en el proceso del contacto al pecho inmediatamente después del nacimiento, y en general, hacerla partícipe de las diferentes actuaciones de los profesionales;
 f) No someter a la paciente a ningún examen o intervención cuyo propósito sea de investigación, salvo consentimiento manifestado por escrito bajo protocolo aprobado;
 g) Realizar lo conducente para que una persona de la confianza de la paciente la acompañe durante el trabajo de parto y postparto;
 h) Realizar lo conducente para que la paciente tenga a su lado a su hijo o hija durante la permanencia en el establecimiento sanitario desde los primeros minutos de nacido, siempre que el recién nacido no requiera de cuidados especiales;
-i) Informar a la paciente, desde el embarazo, sobre los beneficios de la lactancia materna y brindarle apoyo para amamantar;
+(REFORMADO, P.O. 18 DE AGOSTO DE 2026)
+i) Informar a la paciente, desde el embarazo, sobre los beneficios de la lactancia materna, el contacto piel con piel, la primera hora de vida, las técnicas adecuadas de amamantamiento y brindarle apoyo para iniciar y mantener la lactancia materna;
 j) Brindar asesoramiento e información a la paciente sobre los cuidados de sí misma y del niño o niña;
 k) Informar a la paciente específicamente sobre los efectos adversos del tabaco, el alcohol y las drogas sobre el niño o niña y sobre ella misma;
 l) Tratar a la paciente en forma respetuosa y digna, incluyendo su inequívoca identificación y la de la persona recién nacida; y,
