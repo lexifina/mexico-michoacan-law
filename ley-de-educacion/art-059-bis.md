@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 18 DE AGOSTO DE 2026)
+Artículo 59 Bis. La Secretaría garantizará el derecho a la educación de niñas, niños, adolescentes y adultos con neurodivergencias y enfermedades raras, bajo los principios de igualdad sustantiva, ajustes razonables, accesibilidad, no discriminación e interés superior de la niñez.
+Las y los educandos con neurodivergencias y enfermedades raras que hayan recibido educación en modalidad no escolarizada o en el ámbito familiar podrán solicitar su reincorporación a la modalidad escolarizada y tendrán derecho al reconocimiento del grado o nivel educativo correspondiente, realizando la valoración y evaluación respectiva para que sea integrado en el grado de estudios acorde a su edad o competencias académicas.
