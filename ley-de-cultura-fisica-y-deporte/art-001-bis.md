@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 18 DE FEBRERO DE 2022)
 Artículo 1° Bis. El ejercicio y desarrollo del derecho humano fundamental a la cultura física y al deporte tiene como base los siguientes principios:
-(REFORMADA, P.O. 18 DE FEBRERO DE 2022)
-I. Es un derecho humano fundamental para todas y todos, su difusión práctica, debe hacerse sin distinción, exclusión o restricción que pueda dar inicio a la discriminación por origen étnico, sexo, edad, discapacidad, condición social y económica, condición de salud, lengua, opiniones, preferencia sexual, estado civil, ideología o creencia religiosa;
+(REFORMADA, P.O. 18 DE AGOSTO DE 2026)
+I. Es un derecho para todos; su difusión práctica, debe hacerse sin distinción, exclusión o restricción, que pueda dar origen a la discriminación por origen étnico, sexo, edad, discapacidad, condición social y económica, condición de salud, lengua, opiniones, preferencia sexual, estado civil, ideología o creencia religiosa; siendo las niñas, niños y adolescentes sujetos prioritarios en el ejercicio de este derecho, debiéndose garantizar condiciones de equidad, inclusión, protección y participación en todas las actividades, programas, instalaciones y políticas públicas relacionadas con el deporte y la cultura física;
 (ADICIONADA, P.O. 28 DE MAYO DE 2015)
 II. Constituye una parte esencial de la educación;
 (ADICIONADA, P.O. 28 DE MAYO DE 2015)
