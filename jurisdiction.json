@@ -1,0 +1,11 @@
+{
+  "path": "mx-mic",
+  "code": "MX-MIC",
+  "name": "Michoacán",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-michoacan-law",
+  "build": "built: constitution, codes and laws (174 ordenamientos, 1030 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
