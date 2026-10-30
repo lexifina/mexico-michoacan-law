@@ -5,7 +5,7 @@
   "level": "state",
   "parent": "mx",
   "repo": "https://github.com/lexifina/mexico-michoacan-law",
-  "build": "built: constitution, codes and laws (174 ordenamientos, 1030 versions) from SCJN Legislación",
+  "build": "built: constitution, codes and laws (178 ordenamientos, 1034 versions) from SCJN Legislación and H. Congreso del Estado de Michoacán de Ocampo",
   "language": "es",
-  "sources": 1
+  "sources": 2
 }

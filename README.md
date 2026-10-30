@@ -8,7 +8,7 @@ The text is in Spanish, exactly as the source prints it.
 
 ## What this repository holds
 
-174 ordenamientos with 1030 versions so far: the constitution first, then the codes and laws in force, added in parts. Regulations, decrees and repealed laws are not included yet.
+178 ordenamientos with 1034 versions so far: the constitution first, then the codes and laws in force, added in parts. Regulations, decrees and repealed laws are not included yet.
 
 | Folder | Ordenamiento | Versions | History |
 | --- | --- | ---: | --- |
@@ -187,9 +187,14 @@ The text is in Spanish, exactly as the source prints it.
 | `ley-de-trasplantes-y-donacion-de-organos-tejidos-y-celulas-e/` | LEY DE TRASPLANTES Y DONACION DE ORGANOS, TEJIDOS Y CELULAS EN EL ESTADO DE MICHOACAN DE OCAMPO | 2 | as first published, then each reform: 9 June 2021 to 27 July 2024 |
 | `ley-de-turismo/` | LEY DE TURISMO DEL ESTADO DE MICHOACAN DE OCAMPO | 17 | as first published, then each reform: 4 May 2011 to 9 August 2026 |
 
+| `codigo-de-justicia-especializada-para-adolescentes/` | CÓDIGO DE JUSTICIA ESPECIALIZADA PARA ADOLESCENTES DEL ESTADO DE MICHOACÁN | 1 | oldest version available: 29 August 2019; complete PDF text in one unit |
+| `ley-del-consejo-economico-y-social/` | LEY DEL CONSEJO ECONÓMICO Y SOCIAL DEL ESTADO DE MICHOACÁN DE OCAMPO | 1 | oldest version available: 23 April 2016; complete PDF text in one unit |
+| `ley-estatal-de-educacion-en-el-nivel-medio-superior/` | LEY ESTATAL DE EDUCACIÓN EN EL NIVEL MEDIO SUPERIOR Y LA FORMACIÓN PARA EL TRABAJO DEL ESTADO DE MICHOACÁN DE OCAMPO | 1 | as first published: 6 October 2021; complete PDF text in one unit |
+| `ley-organica-de-division-territorial/` | LEY ORGÁNICA DE DIVISIÓN TERRITORIAL DE MICHOACÁN | 1 | oldest version available: 14 January 2022; complete PDF text in one unit |
+
 ## Source
 
-The legislation compilation of Mexico's Supreme Court, the Suprema Corte de Justicia de la Nación (SCJN), at <https://legislacion.scjn.gob.mx/>. For each ordenamiento it lists every publication in the state's official gazette (Periódico Oficial) that changed it (decree, erratum, ruling), with the date of publication, the decree's extract and the whole consolidated text as it stood after that publication. Each version here is one of those texts.
+The legislation compilation of Mexico's Supreme Court, the Suprema Corte de Justicia de la Nación (SCJN), at <https://legislacion.scjn.gob.mx/>. For each ordenamiento it lists every publication in the state's official gazette (Periódico Oficial) that changed it (decree, erratum, ruling), with the date of publication, the decree's extract and the whole consolidated text as it stood after that publication. Most versions here are one of those texts. Four current-text acts listed above are from the H. Congreso del Estado de Michoacán de Ocampo, <http://congresomich.gob.mx/leyes/>; each records the full text layer of the Congress PDF and its stated gazette date and entry-into-force clause.
 
 ## Dates
 
@@ -200,12 +205,12 @@ The legislation compilation of Mexico's Supreme Court, the Suprema Corte de Just
 
 ## Files
 
-`<act>/art-005.md` is Artículo 5, `art-005-bis.md` Artículo 5 Bis; `encabezado.md` holds the title, the promulgation and preamble; `transitorios-original.md` the original transitory articles and `transitorios-<date>.md` those of the reform published that day. Section headings and editor's notes such as "(REFORMADO, P.O. ...)" stay in the file of the article they stand before. One paragraph per line.
+For the four Congress PDF acts, `<act>/texto-completo.md` contains the complete PDF text layer as one unit. For the SCJN acts, `<act>/art-005.md` is Artículo 5, `art-005-bis.md` Artículo 5 Bis; `encabezado.md` holds the title, the promulgation and preamble; `transitorios-original.md` the original transitory articles and `transitorios-<date>.md` those of the reform published that day. Section headings and editor's notes such as "(REFORMADO, P.O. ...)" stay in the file of the article they stand before. One paragraph per line.
 
 ## How it is checked
 
 - Every version of every act is read back from git on the day it took effect and on the day before (`tools/check_repo.py`); both must match `corpus.json`.
-- The letters and digits of every version equal those of SCJN's own text of that version (read independently of the parser), and every unit's text appears in it in order.
+- The letters and digits of every SCJN version equal those of SCJN's own text of that version (read independently of the parser), and every unit's text appears in it in order. The four Congress PDF acts were compared with the text extracted directly from each official PDF.
 - Health checks: no merge commits, commit dates never go backwards, nothing dated in the future, and every commit's trailers parse.
 
 ## What "author" means
