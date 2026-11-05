@@ -203,6 +203,15 @@
     "ley-de-turismo"
    ],
    "sha256": "bcd77025fa14ba20d0a2515d6b6703e7a1145fd1cdf1ee18604392ade793ed9b"
+  },
+  "34-congreso-breadth.json": {
+   "acts": [
+    "codigo-de-justicia-especializada-para-adolescentes",
+    "ley-del-consejo-economico-y-social",
+    "ley-estatal-de-educacion-en-el-nivel-medio-superior",
+    "ley-organica-de-division-territorial"
+   ],
+   "sha256": "6ddd45ca3936ade9699e51c3a8062ebbeaf0003f522289eb807156d453c9ca78"
   }
  },
  "schema": 1

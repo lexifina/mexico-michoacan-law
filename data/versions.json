@@ -7572,6 +7572,62 @@
      "sha256": "2c62d9203f48698d8ffc1d6eb980340f2e7ef02172e2350f66d0f3ef34a9cd9c"
     }
    ]
+  },
+  {
+   "slug": "ley-del-consejo-economico-y-social",
+   "short": "LEY DEL CONSEJO ECONÓMICO Y SOCIAL DEL ESTADO DE MICHOACÁN DE OCAMPO",
+   "title": "LEY DEL CONSEJO ECONÓMICO Y SOCIAL DEL ESTADO DE MICHOACÁN DE OCAMPO",
+   "url": "http://congresomich.gob.mx/file/Ley-del-Consejo-Económico-y-Social-del-Estado-de-Michoacán-de-Ocampo.pdf",
+   "versions": [
+    {
+     "from": "2016-04-23",
+     "units": 1,
+     "source_url": "http://congresomich.gob.mx/file/Ley-del-Consejo-Económico-y-Social-del-Estado-de-Michoacán-de-Ocampo.pdf",
+     "sha256": "d7b6f8bc8e8ecbf05bf22751b5a6ddd1a6d3694b72673923c0eb2902dc18a1da"
+    }
+   ]
+  },
+  {
+   "slug": "ley-estatal-de-educacion-en-el-nivel-medio-superior",
+   "short": "LEY ESTATAL DE EDUCACIÓN EN EL NIVEL MEDIO SUPERIOR Y LA FORMACIÓN PARA EL TRABAJO DEL ESTADO DE MICHOACÁN DE OCAMPO",
+   "title": "LEY ESTATAL DE EDUCACIÓN EN EL NIVEL MEDIO SUPERIOR Y LA FORMACIÓN PARA EL TRABAJO DEL ESTADO DE MICHOACÁN DE OCAMPO",
+   "url": "http://congresomich.gob.mx/file/LEY-ESTATAL-DE-EDUCACIÓN-EN-EL-NIVEL-MEDIO-SUPERIOR-Y-LA-FORMACIÓN-PARA-EL-TRABAJO-5-OCTUBRE-2021.pdf",
+   "versions": [
+    {
+     "from": "2021-10-06",
+     "units": 1,
+     "source_url": "http://congresomich.gob.mx/file/LEY-ESTATAL-DE-EDUCACIÓN-EN-EL-NIVEL-MEDIO-SUPERIOR-Y-LA-FORMACIÓN-PARA-EL-TRABAJO-5-OCTUBRE-2021.pdf",
+     "sha256": "e264563d10d124ce27cc8f18786965ba5ef718c632b11047452d107babb1f301"
+    }
+   ]
+  },
+  {
+   "slug": "ley-organica-de-division-territorial",
+   "short": "LEY ORGÁNICA DE DIVISIÓN TERRITORIAL DE MICHOACÁN",
+   "title": "LEY ORGÁNICA DE DIVISIÓN TERRITORIAL DE MICHOACÁN",
+   "url": "http://congresomich.gob.mx/file/Ley-Orgánica-de-División-Territorial-de-Michoacán-REF-13-DE-ENERO-DE-2022.pdf",
+   "versions": [
+    {
+     "from": "2022-01-14",
+     "units": 1,
+     "source_url": "http://congresomich.gob.mx/file/Ley-Orgánica-de-División-Territorial-de-Michoacán-REF-13-DE-ENERO-DE-2022.pdf",
+     "sha256": "c27c3afc7538ffcd5c753cb9ac5429bf5db741329cbadf5c04967cce0d1d8848"
+    }
+   ]
+  },
+  {
+   "slug": "codigo-de-justicia-especializada-para-adolescentes",
+   "short": "CÓDIGO DE JUSTICIA ESPECIALIZADA PARA ADOLESCENTES DEL ESTADO DE MICHOACÁN",
+   "title": "CÓDIGO DE JUSTICIA ESPECIALIZADA PARA ADOLESCENTES DEL ESTADO DE MICHOACÁN",
+   "url": "http://congresomich.gob.mx/file/CÓDIGO-DE-JUSTICIA-ESPECIALIZADA-PARA-ADOLESCENTES-REF-28-AGOSTO-2019.pdf",
+   "versions": [
+    {
+     "from": "2019-08-29",
+     "units": 1,
+     "source_url": "http://congresomich.gob.mx/file/CÓDIGO-DE-JUSTICIA-ESPECIALIZADA-PARA-ADOLESCENTES-REF-28-AGOSTO-2019.pdf",
+     "sha256": "84880f5ec846b72b37b67ef9c36902d0224672bdcd65cf3f47dbf28a8d778b77"
+    }
+   ]
   }
  ]
 }

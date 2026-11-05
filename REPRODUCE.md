@@ -7,6 +7,7 @@ This file is written by the build on 2026-11-05, the day the source data was ret
 | Source | Address | Retrieved | Licence |
 | --- | --- | --- | --- |
 | Suprema Corte de Justicia de la Nación: Legislación (state compilation) | <https://legislacion.scjn.gob.mx/> | 2026-10-30 | Ley Federal del Derecho de Autor, art. 14, fr. VIII: legislative texts are not protected. SCJN terms: copying for informative and academic purposes, with no commercial use. |
+| H. Congreso del Estado de Michoacán de Ocampo, Leyes | <http://congresomich.gob.mx/leyes/> | 2026-11-05 | Legislative texts are not protected by copyright under Ley Federal del Derecho de Autor, art. 14, fr. VIII; no separate reuse licence was stated on the Congress listing. |
 
 Every word of law in this repository comes from these sources. Lexifina reads them and records each act's dated versions, and the laws that made each change, in one corpus file. This repository is built from that file.
 
@@ -188,12 +189,16 @@ Every word of law in this repository comes from these sources. Lexifina reads th
 | `ley-de-transparencia-acceso-a-la-informacion-publica-y-prote` | LEY DE TRANSPARENCIA, ACCESO A LA INFORMACION PUBLICA Y PROTECCION DE DATOS PERSONALES DEL ESTADO DE MICHOACAN DE OCAMPO | 11 | 2016-05-19 to 2026-05-27 |
 | `ley-de-trasplantes-y-donacion-de-organos-tejidos-y-celulas-e` | LEY DE TRASPLANTES Y DONACION DE ORGANOS, TEJIDOS Y CELULAS EN EL ESTADO DE MICHOACAN DE OCAMPO | 2 | 2021-06-09 to 2024-07-27 |
 | `ley-de-turismo` | LEY DE TURISMO DEL ESTADO DE MICHOACAN DE OCAMPO | 17 | 2011-05-04 to 2026-08-09 |
+| `ley-del-consejo-economico-y-social` | LEY DEL CONSEJO ECONÓMICO Y SOCIAL DEL ESTADO DE MICHOACÁN DE OCAMPO | 1 | 2016-04-23 to 2016-04-23 |
+| `ley-estatal-de-educacion-en-el-nivel-medio-superior` | LEY ESTATAL DE EDUCACIÓN EN EL NIVEL MEDIO SUPERIOR Y LA FORMACIÓN PARA EL TRABAJO DEL ESTADO DE MICHOACÁN DE OCAMPO | 1 | 2021-10-06 to 2021-10-06 |
+| `ley-organica-de-division-territorial` | LEY ORGÁNICA DE DIVISIÓN TERRITORIAL DE MICHOACÁN | 1 | 2022-01-14 to 2022-01-14 |
+| `codigo-de-justicia-especializada-para-adolescentes` | CÓDIGO DE JUSTICIA ESPECIALIZADA PARA ADOLESCENTES DEL ESTADO DE MICHOACÁN | 1 | 2019-08-29 to 2019-08-29 |
 
-The build made 836 commits:
+The build made 840 commits:
 
 | Commits | Kind |
 | ---: | --- |
-| 174 | first version of an act |
+| 178 | first version of an act |
 | 662 | one law on its in-force day |
 | 0 | changes no amendment note explains, credited to the publisher |
 
@@ -201,7 +206,7 @@ Other counts:
 - 0 commits on the branch `futuro`: laws not yet in force on 2026-11-05.
 - 18 commits dated 1 January 1970: in force before 1970, with the real day in their `In-force` trailer.
 - 836 laws in the record.
-- 1734 tags.
+- 1738 tags.
 
 ## Dates
 
@@ -213,15 +218,15 @@ When a law gives no date of its own, the default rule applies: Decrees take effe
 
 `tools/build.py` turns the corpus into this history in one pass: one commit per law, on the day it took effect. The same corpus always gives the same commit hashes. `tools/check_repo.py` reads every version back from git and compares it with the corpus. `tools/on.py` shows the law as it stood on any date. The corpus format is described in `tools/SCHEMA.md`.
 
-- Corpus: sha256 `b7e947706b111bbdee03f54f2531f812d9148b0f766eced36607822fc19018e8` (25861687 bytes).
+- Corpus: sha256 `bfb83392e2a920bb7c897872a257bbd490d682058241084e805d933042825014` (26602287 bytes).
 - Builder blob hashes (`git hash-object`): `build.py` `35388bee5aa05369f7da68f5a8fa015ea8d442b8`, `check.py` `5d719354ea4c62d240c93d2cae446307d81d9e81`, `on.py` `aff48cf1b68d50c7ba8f399ca32261871c301824`.
 - Python 3.14.4; git version 2.53.0.
 
 ## Checks
 
-1030 versions of 174 acts read back from git on the day each took effect and on the day before: 0 mismatches. Trailers: 0 commits whose trailers git cannot parse. Health: 0 merge commits on main, 0 commit dates that go backwards, 0 commits dated after the build.
+Not yet run for this build.
 
-No second build of this corpus has been compared yet.
+A second build from the same corpus into an empty folder gave identical hashes for all 840 history commits and 1738 tags (history tip `29475897e3a8ee81fa44200942e74046b861b8d9`).
 
 ## Decisions made by hand
 
@@ -231,6 +236,9 @@ No second build of this corpus has been compared yet.
 - Units: the heading and preamble (encabezado), one file per article (with the headings and editor's notes printed just before it), the original transitorios, and the transitorios of each reform decree under its publication date. The banner "ÚLTIMA REFORMA PUBLICADA ..." / "TEXTO ORIGINAL" is left out; editor's notes ("(REFORMADO, P.O. ...)", "N. DE E.") stay as printed.
 - An act's first commit is its first publication only when SCJN's oldest record is the act itself and its text is marked "TEXTO ORIGINAL"; otherwise it is the oldest version available, naming the publications before it.
 - Codes of conduct and ethics are left out; only ordenamientos SCJN marks as in force are included.
+- Scope of the preceding SCJN decisions: their consolidated Word texts, decree extracts, article-level units, banner removal, and selection rule describe the 174 acts in the six earlier SCJN parts only. The four Congress PDF acts in this part use the whole printed PDF text, including banners and transitorios, in a single texto-completo unit.
+- The four Congress acts have one current-text version each and no reconstructed earlier history; first_law is null. Consejo Económico y Social takes effect on 23 April 2016 after its last reform published 22 April 2016; Educación en el Nivel Medio Superior on 6 October 2021 after original publication 5 October 2021; División Territorial on 14 January 2022 after its last reform published 13 January 2022; and Justicia Especializada para Adolescentes on 29 August 2019 after its last reform published 28 August 2019. Each relevant transitory says the next day.
+- Each Congress version preserves the PDF text layer exactly, apart from line-ending and final-newline normalization. No OCR or model correction was used; no image-bearing page was omitted.
 
 ## What AI did and did not do
 
@@ -242,3 +250,4 @@ The commit messages are written by `build.py` from the source data.
 
 Model use at data-build time:
 - A model (Claude) wrote the fetch and parse code and chose which ordenamientos to include; it wrote no law text. Every word of law comes from the SCJN compilation's consolidated texts.
+- Scope correction to the earlier SCJN-only model-use statement and the template sentence naming Claude Code: those describe the inherited SCJN acts and tooling, not the four Congress PDF acts here. A GPT-6 worker selected these four acts, wrote the extraction and part-generation scripts, and read their date clauses. It did not write, translate, or correct legal text. The four legal texts are direct text-layer extractions from the official Congress PDFs.
